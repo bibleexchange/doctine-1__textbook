@@ -1,23 +1,24 @@
-# Maana ya mafundisho
+﻿# Maana ya mafundisho ya Biblia.
 
-## Ufasisiyo ya mafundisho kamusini
+## Ufafanuzi wa mafundisho katika kamusi ni
 
-_mila, imani, soditio, maneno iliyo aminiwa kwa kila kanisa, dhehebu, ao chama_
+_Kanuni, imani, mapokeo ya kanisa lolote,dhehebu au chama_
 
-Tamko "doctrine" maona yake mafundisho, na tena imeweza kufasiriwa kama kweli ya ndani katika biblia yenye kutungwa katika utaratibu ya mbinu mafunzo hiyi imcitwa kwa ujumba "theology", maana maarifa kamili kuhusu Mungu. Theology ao doctrine lime weza kufasiriwa kama maarifa kuhusu ufahamu wetu wa Mungu na kwambatana kwake Mungu na mtu.
+Neno "Mafundisho" kwa uhalisia humaanisha “kufundisha” au “kuelekeza” na tena imeweza kufasiriwa kama ukweli wa msingi katika Biblia wenye kutungwa katika  utaratibu wa mafunzo.Somo hili pia huitwa “theolojia”maana yake ni maarifa kamili kuhusu Mungu,na pia linaweza kufasiriwa kama maarifa kuhusu ufahamu wetu kwa Mungu na kuambatana kwake Mungu na binadamu.
 
-## Tumefasiria je theology ao doctrine kama marifa?
+## Kwanini tunaelezea theolojia au mafundisho kama sayansi?
 
-Maarifa ni utaratibu kamili na yenye kitungwaa mbinyay yene kuhakikishwa, mambo. Tumefasiria theology (doctrine kma maonifa, kwani imeambatana na maneno kuhusu mungu na vitu takatifu vyenye utaratibu kamili na yenye kufwata mbinu.
+Sayansi ni utaratibu wa mpangilio wa mambo yaliyo hakikishwa.Hivyo tunaelezea mafundisho/doctrine kama sayansi kwasababu inahusisha vitu vya kweli vya Mungu vilivyopangwa katika utaratibu maalumu.
 
-## Ushiritka gain inayopatikana kati ya theology ne dini?
+## Kuna uhusiano gani kati ya theolojia na dini?
 
-Theology ni ufahamu kuhusu Mungu, walakini, dini ni mazoezo za hiyo ambayo imefahamika (Yohana 13:17; Yokobo 1:27). Umeweza kuwa mwenye maarifa kamili kuhusu Mungu (theologian), lakini bado haujaambatana na dini-yani, badon haujapata ufahamu kamili za viroho.
+Theolojia ni ufahamu kuhusu Mungu, walakini, dini ni mazoea ya kile unachofahamu kuhusu Mungu  (Yohana 13:17; Yakobo 1:27). Unaweza kuwa mwenye maarifa kamili kuhusu Mungu (mwanatheolojia) lakini bado haujaambatana na dini-yaani, bado haujapata uzoefu kamili wa kiroho.
 
-## Tofauti gain inayopatikana kati ya doctrine na dogma?
+## Kunatofauti gani kati ya mafundisho ya Biblia/doctrine na dogma?
 
-Dogma ni maneno ya kweli kutokea kwa mtu yenye kudhihirishwa kwa namna ya kusadiki, bali doctrine ni kweli wa ndani katika bibkia wenye kutungwa kwa ambinu. Kwa Mfano: kanisa ya katolika ya Rumi imeagiza watu kumwita papa "Baba Mtakatifu" (dogma), bali Biblia imesema katika injili ya Mathayo 23:9, "Wala msimwite mtu baba duniani" (mafundisho). Maana kamili ya mafundisho ya Kristo ni kuhusu kiburi na majivu ya watu ambaye wamepotonya ustahivu na shukrani isiyo kuwa ya kwao kwa kujipendelea wenyewe. Mwanza wetu siyo kwa mtu, bali kwa Mungu kwenye na fundisho ambayo Kristo ametetea. Mafundisho danganifu imetoa hiyo dogma kwamba Pape ndiye Kristo duniani. Papa Pius (ambae ali kuwako toka mwaka 1903-1914) aliiga kusema katika mafundisho kuhusu mamlakon ya Pope:
+Dogma ni maneno ya kweli kutoka kwa mtu yenye kudhihirishwa kwa namna ya kusadiki, bali mafundisho/doctrine ni kweli wa ndani katika Biblia wenye kutungwa kwa mbinu. Kwa Mfano: kanisa ya katoliki ya Ruma huwaagiza watu kumwita papa "Baba Mtakatifu" (dogma), bali Biblia imesema katika injili ya Mathayo 23:9, "Wala msimwite mtu baba duniani" (mafundisho). Maana kamili ya mafundisho ya Kristo ni kuhusu kiburi na majivu ya watu ambao wamepotosha ustahivu na shukrani isiyo kuwa ya kwao kwa kujipendelea wenyewe. Mwanzo wetu siyo kwa mwanadamu, bali kwa Mungu,ni mfalme Kristo anayesisitiza. Mafundisho ya uwongo hutoa hiyo dogma kwamba Papa ndiye Kristo duniani. Papa Pius (ambae ali kuwako toka mwaka 1903-1914) aliiga kusema katika mafundisho kuhusu mamlaka ya Popa:
 
-> Papa siye tu msimamizi wa Yesu Kristu. Lakini, ni Yesu Kristo mwenyewe, Katika mwili na kwa kuwa mtu kama watu ame fuliza kubimiza kazi zake myongoni mwa watu… Papa amesema? Ndiye Yesu Kristo amenena. Amefundisha ? Ndiye Yesu Kristo amefundisha. Ametoa neema ao laana? Ndiye Yesu Kristo mwenyewe ametoa laana na neema.
+> Papa siye tu mwakilishi wa Yesu Kristo. Lakini, ni Yesu Kristo mwenyewe, Katika mwili na kwa kuwa mtu ambaye anaunyenyekevu wa kawaida hufanya kazi miongoni mwa watu kama watu, Papa hunema? Ndiye Yesu Kristo hunena. hufundisha ? Ndiye Yesu Kristo hufundisha. hutoa neema au laana? Ndiye Yesu Kristo mwenyewe hutoa laana na neema.
 
-Dogma ya kanisa za Katolika ya Rumi umeketi juu ya mafundisho danganifu, na kumbe, imekuwa ya uongo. Mafundisho imesema "na dogma kama neon la mwisho kutokea kwa mtu na yenye kupatikana katika maandikon takatifu. Dogma imeweza kwa kweli, balihaiwezi kwa mara yote kuwa kweli.
+Dogma ya kanisa za Katoliki la Roma hukaa juu ya fundisho  na kumbe, limekuwa la uongo. Mafundisho ya Biblia yangeeleweka kirahisi kama kile Biblia inasema,na Dojima ni hutimisho kutoka kwa mwanadamu juu ya maandiko matakatifu.Dojima inaweza kuwa kweli ila sio kwa wakati wote.
+

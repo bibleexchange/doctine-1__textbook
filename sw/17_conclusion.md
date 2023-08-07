@@ -1,10 +1,14 @@
-# NENO LA MWISHO
+# HITIMISHO
 
-Mafundisho ifwatayo haiko ndani ya mafunzo fulani katika urefu, kwa sababu yamekuwa kwa raisi ndani ya ma cosi zingine:
+Mafundisho ya fuatayo hayajajumuishwa katika utafiti huu kwa kina chochote kwasababu yamekamilishwa kikamilifu katika kozi zingine:
 
-1. Mafundisho kuhusu Biblia imekuwa ndani ya (Bibliology)
-2. UTANGULIZI KWA BIBLIA. Ime kuwa ndani ya MAFUNDISHO III (DOCTRINE III)
-3. Mafundisho kuhusu kanisa (Ecclosiology) imekuwa ndanii ya LOCAL CHURCH&EPISTLES I, II & III.
-4. Mafundisho Kuhusu Kristo na Mafundisho Kuhusu Mungu (Christology and theology) yamekuwa ndani ya Mafundisho III (DOCTRINE III)
-5. Mafundisho kuhusu vitu vya mwisho (Eschatology) imetuwa ndani ya PROPHECY and REVELATION.
-6. Mafundisho Kuhusu utubio (Expiatology) imetuwa ndani ya PENTATEUCH.
+
+1. Bibliolojia imejumuishwa katika UTANGULIZI WA BIBLIA.
+2. Pneumatolojia imefunikwa katika MAFUNDISHO III.
+3. Ukristo naTheolojia zimeangaziwa katika MAFUNDISHO III.
+4. Eklesiolojia inashughulikiwa katika KANISA LA MTAA &
+WARAKA WA I, II, & III.
+5. Eskatolojia inashughulikiwa katika UNABII & UFUNUO.
+6. Expiatolojia inashughulikiwa katika PENTATEUCH
+
+

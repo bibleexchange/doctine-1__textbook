@@ -1,27 +1,28 @@
-## Mambo kuhusu Kuanguka
+﻿## Sababu ya Anguko.
 
-Shida kuu ambayo iligandamana na mtu, ni kuanguka kwake katika dhambi. Mwanzo 3:1-6 imeonyecha kwamba mtu wa kwanza alianguka. Atua ya kuanguka ilikuwa hiyi.
+Tukio baya zaidi linalounganishwa na mwanadamu ni kuanguka katika dhambi.Mwanzo3:1-6 hufunua kwamba mtu wa kwanza alianguka.Hatua za anguko zilikuwa ni:-
 
-### Kusikiliza makufuru kuhusu Mungu. (3:1)
+### Kusikiliza kejeli juu ya Mungu.mstr. 1
 
-Shauri ya Kwanza: Mungu alisema…?
+Ati hivi ndivyo alivyosema Mungu..?
 
-### Kushakia neno la Mungu na mapendo yake. (3:4,5)
+### Kuonea shaka Neno la Mungu na upendo wake.mstr.4,5.
 
-“Mungu amekuficha kitu kyenye zuada kuu!”
+“Mungu hulinda kitu Fulani cha ajabu kutoka kwako!”
 
-### Kutazama kitu Mungu alikataza.
+### Kutazama kile ambacho Mungu alikataza.
 
-Na wakati muke aliyaona…mti (3:6) (linganisha na Yoshua 7:21).
+Na wakati mwanamke alipoona..mti mstr.6(linganisha na Yoshua7:21)
 
-Uyakumbuke atua ya dhambi:
+Kumbuka hatua za Anguko:
 
-1. “Niliona”
+1. “Naliona”
 2. “Nilitamani”
-3. “Nilichukua”
+3. “Nilichukua” 
 4. “Nilijificha”
 
-### Tamaa za Kitu Mungu alikataza. (3:6)
+### Kutamani kile ambacho Mungu alikwisha zuia.mstr.6 
 
-Hapa tuna “tamaa za mwili”, “tamaa za macho” na “mafirino za maisha” yenye kuzungumziwa katika I Yohana 2:16. (Linganisha na luka 4:1-15)
+Hapa tuna “Tamaa ya mwili”, “Tamaa ya macho”,Ufahari wa maisha”,kilichosemwa katika 1 Yohn 2:16.(linganisha na Luka 4:1-15.)
+
 

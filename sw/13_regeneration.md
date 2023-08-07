@@ -1,97 +1,113 @@
-## Kuzaliwa upya kwa kiroho.
+﻿##Kuzaliwa Upya
 
-### Asili (Maumbile) ya tendo la kuzaliwa upya kwa kiroho
+### Asili ya kuzaliwa upya
 
-Kuzaliwa upya kwa kiroho ni tendo la kimungu ambayo imetolea kwa mwaminifu mwenye kutubia maisha mpya na ya hali ya juu katika kuunga kwa mwenyewe na kristo. Agano jipya imefasiria kizliwa upya kwa kiroho kama:
+Kuzaliwa upya ni tendo la Kimungu ambalo humpa mwamini anayetubu maisha mapya na ya juu zaidi katika muungano wakibinafsi na Kristo. Agano Jipya linaelezea kuzaliwa upya kama:
 
-#### Tendo la kuzaliwa
+#### Kuzaliwa
 
-Tenddo la kuzaliwa upya kwa kiroho (siyo ubatizo – kuhudhuna kanisa – mabadiliko). Mungu Baba ni yule ambae “alizaa” na mwaminifu ni mwenye “kuzaliwa” kwa Mungu (Iyohana 5:1), “Kuzaliwa kwa roho” (Yohana 3:8), na “kuzliwa kutoka juu” (mafasirion kamlifu ya Yohana 3:7). Hiyo matambko imekumbusha tendo ya neema yenye kuumba ambayo imemfanya mwaminifu kuwa mtoto wa Mungu.
+
+Kuzaliwa upya ni Kuzaliwa (si ubatizo – siku hudhuria kanisa – si matengenezo). Mungu Baba ndiyeâ€œaliyemzaaâ€na mwamini niâ€œmzaliwa wa Mungu (1 Yohana 5:1), â€œaliyezaliwa na Rohoâ€ (Yohana 3:8), naâ€œalizaliwakutokajuuâ€ ( tafsirihalisiyaYohana 3:7). Maneno haya yana rejelea tendo la neema ya uumbaji ambayo humfanya mwamini kuwa motto wa Mungu.
 
 #### Utakaso
 
-Tumeokoliwa siyo kwa “ushwa kutokea kwa kuzaliwa upya kwa kiroho.” (Tito 3:5). Nafsi iliashwa mjima kutoka kwa imajisi wa maisha ya mbele na kufanywa kuishi maisha mapya. – Hii ni picha ya ubatizo kwa maji (Matendo 22:16).
+Mungu alituokoa kwakuosha (kihalisi, birika au kuoga) kwa kuzaliwa upya 0â€ (Tito 3:5). Nafsi ilioshwa kabisa na uchafu wa maisha ya kale na kuishi katika upya wa uzima – tukiolililo onyeshwa na ubatizo wa maji (Matendo 22:16).
 
-#### Tendo la kuharakisha
+#### Kuhuisha
 
-Tuliokolewa siyo tu kwa « tendo la kuoshwa ya tendo la kuzliwa upya kwa kiroho » lakini tena kwa tendo la kuifanya upya Roho Mtakatifu  (Tito 3:5). Lingamisha Zaburi 57:10, Warumi 12:2, Waefeso 4:23, na Wakolosai 3:10.
+Hatukuokolewa tu kwa kuoshwa kwa kuzaliwa upyaâ€bali pia kwa kufanywa upya na Roho Mtakatifuâ€ (Tito 3:5). Linganisha Zabr. 57:10, Rum 12:2, Efe. 4:23, na Kol. 3:10.
 
-#### Tendo la Kuumba
+#### Ubunifu
 
-Yule ambae alimuumba mtu katika mwanzo na kumvuvia pumzi ya uzima puani, ame muumba upya kwa tendo ya Roho Mtakatifu (II Wakorinto 5:17; Waefeso 2:10; Wagalatia 6:15; Waefeso 4:24). Linganisha Mwanzo 2:7. Jibu kwa hiyo ni mabadiliko kuu katika maumbile, mwenendo, tamaa, na shaba za mtu.
+Yeye aliyemuumba mwanadamu hapo mwanzo na kumpulizia puani pumzi ya uhai, anamwumba upya kwa utendaj wa Roho wake Mtakatifu ( 2Kor. 5:17; Efe. 2:10; Gal 6:15; Efe. 4:24 ) ) LinganishaMwanzo 2:7. Matokeo ya vitendo ni mabadiliko makubwa katika asili, tabia, matamanio na madhumuni ya mtu â€™s.
+ 
+#### Ufufuo
 
-#### Kuyma ya wafu
+Kama vile Mungu alivyohuisha udongo usio na uhai na kuufanya kuwa hai kwa ulimwengu, hivyo anahuisha nafsi iliyokufa katika dhambi na kuifanya hai kwa hali halisi ya ulimwengu wa kiroho. Tendo hili la ufufuo kutoka kwa kifo cha kiroho linaonyeshwa katika ubatizo wa maji. Wesley alisema, Kuzaliwaupyaniâ€œlilebadilikokubwaambaloMunguhufanyakazikatikanafsianapoiletakatikauzima; anapoifufuakutokakatikamautiyadhambihadikwenyeuzimawahaki.â€
 
-Hivi Mungu ali Udongo usiyo na maisha na aliufanya kuwa hu kwa ulimwengu, ni hivyo hivyo atau nafsi ambayo ilitufa katika dhambi na kuifanya kuwa ha kwa ukweli wa ulimwengu wa kiroho. Tendo hiyi ya kiyama kutoka kwa kifo cha kiroho imekuwa picha ya ubatizon kwa maji. Kwa kusema kwa hekima, tendo la kuzaliwa upya kwa kiroho ni "hiyo mabadiliko kuu ambao Mungu ametenda katika nafsi wakati amenpata uhai; wakati ameuamusha kutoka kifo cha dhambi kwelekea kwenye maisha yenye haki."
 
-Hiyo matambko imekuwa tu hali nyingine ya fikira moja kuu na ya msingi ya Tendo la kuzaliwa upya kwa kiroho, litwayo, matoleo ya kimungu ya maisha mpya kwa maisha ya nafsi ya mtu. Na mambo matatu kwenye maarifa yenye kweli kwa maisha ya asili imetumiwa tena kwa maisha ya kiroho, imekuja kwa rafla, imeonekana yenye fumbo na imeedeleaa habi kwa hatua (Warumi 6:4-5; Wakolosai 2:13; 3:1; Waefeso 2:5-6).
+Maneno haya ni lahaja tu za wazo moja kuu la msingi la kuzaliwa upya, yaani, utoaji wa Kiungu wa maisha mapya kwa nafsi ya mwanadamu. Na mambo matatu ya hakika ya kisayansi ya kweli ya maisha ya asili ya na husu pia maisha ya kiroho, hujaghafla, huonekana kwa fumbo, na kukua hatua kwa hatua ( Rum. 6:4-5; Kol. 2:13; 3:1; Efe. 2:5-6 )
 
-### Kuihitaji tendo la kuzaliwa upya kwa kiroho.
+### Haja ya kuzaliwa upya
 
-Katika Yohana sura ya 3, Yesu amejibu kwa haja ya roho badala ya maneno ambayo Nikodema aliyasema (Yohana 3:7).
+KatikaYohanasuraya 3, Yesu alijibu haja ya moyo badala ya maneno ambayo Nikodemo alizungumza (Yohana 3:7).
 
-#### Kutokuwa maisha “Hiyo mwijiza”
+#### Ukosefu wa maishaâ€œmiujiza hiiâ€
 
-Nikodema alikuwa amekufa kwa kiroho (Waefeso 2:1). Maneno ya mwanzo ya Nikodema imeonyesha mashida kadha wa kadha ambayo iliawa imepambana moyoni mwake. Alipungikiwa na maisha ya kiroho ange sema “Nime choka na makazi bila maisha ya sinagogi ambayo sifa imekwisha kuondaka kwenye Israeli. Hakuna ano na watu wameangania. Nafsi yangu ina njaa ya ukweli. Nafsi yangu ni tupu! Mwijiza yako imehakikisha kwangu ya kuwa wewe ni Mungu ambae alitumwa kama mualimu”.
+.â€
 
-#### Kutokuwa hakikisho “mwalimu”
+Nikodemo alikuwa amekufa kiroho (Waefeso 2:1). Nicodemusâ€™ maneno ya ufunguzi yanafichua hisia kadhaa zilizokuwa zikipambana moyoni mwake. Alikosa uzoefu wakiroho. Angeweza kusema, â€œNimechoshwa na huduma zisizo na uhai za sinagogi utukufu umeondoka kutoka kwa Israeli. Hakuna maono na watu wanaangamia. Nafsi yangu ina njaa ya ukweli. Nafsi yangu nitupu! Miujiza yako ina nishawishi kwamba wewe ni mwalimu aliyetumwa na Mungu.â€
 
-Nikodema aliona haja, ya mwalimu badala ya Mkombozi “wewe ni mwalimu”. Imekupasa kuona ya kuwa ni mtenda dhambi. Kabla ahitaji kufundishwa, amehitaji kuokolewa.
+#### Ukosefu wa hatiaâ€œamwalimuâ€
 
-#### Kutokuwa na ufahamu “Vipi” (Yohana 3:9-10)
+Nikodemo anahisi hitaji lake, la mwalimu badala ya Mwokozi. â€œWewe ni mwalimuâ€ Ni lazima atambue kwamba yeye ni mwenye dhambi. Kabla hajafundishwa, anahitaji kuokolewa.
 
-Yesu alionyesha haja ya ndani na ya kawaida ya watu: madiliko ya asili (maumbile) na mwenendo mzima. Maumbile mzima ya mtu imepatikana katika dhambi. Mtu hawezi kubadilika mwenyewe; kumbe, madiliko yapsa kutoka juu.
+#### Ukosefu wa maarifaâ€œjinsiâ€ (Yohana 3:9-10)
 
-Yesu hakujaribu kufasiria “vipi” ya tendo la kuzaliwa mari ya pili, lakini alifasiria “Sababu gani ya mambo: Mwili na Roho yameviwa ua imoùwe, tofauti.
+Yesu alionyesha hitaji la ndani na la ulimwengu wote la wanadamu: mabadiliko ya asili na tabia  nzima. Asili yote ya Mwanadamuâ€™s imepotoshwa na dhambi. Mwanadamu hawezikujibadilisha; kwahiyo, mabadiliko lazima yatoke juu.
 
-### Vyombo vya tendo la kuzaliwa upya kwa kiroho
+Yesu hakujaribu kuelezaâ€œjinsiâ€ya kuzaliwa upya, lakini alieleza sababu ya jambo hilo: mwili na roho ni mali ya limwengu tofauti.
 
-#### Tendo la kiroho
+### Njia za kuzaliwa upya
 
-Roho Mtakatifu ni chombo tofauti katika tendo la kuzaliwa upya kwa kiroho, ambayo hivi imetenda kwa mtu ili kuzaa mabadiliko (Yohana 3:6; Tito 3:5).
+#### Wakala wa Kimungu
 
-Kila mtu wa utatu a kimungu amepatikana katika tendo la kuzaliwa upya kwa kiroho:
+Roho Mtakatifu ndiye wakala maalum katika kuzaliwa upya, ambaye hutenda kazi juu ya mtu ili kuleta mabadiliko (Yohana 3:6; Tito 3:5).
 
-1. Baba amezaa (Yakobo 1:18)
-2. Mtoto ni mwenye kutolea maisha (Yohana sura ya 5-6)
-3. Roho ni tendo (Yohana 3:6; 6:53)
+Kila nafsi ya Utatu inahusika katika kuzaliwa upya:
 
-#### Tendo la kutengeneza kwa kimutu
+1. Baba huzaa (Yakobo 1:18)
+2. Mwana ndiye mpaji wa Uzima (Yohana sura ya 5-6)
+3. Roho ndiye wakala (Yohana 3:6; 6:53)
 
-Matengenezo ya kimutu yenye kuambatana na tendo la kuzaliwa upya kwa kiroho ni ma swali ya utii kwa amri za Mungu: utubio na imani hayanunuwe tendo la kuzaliwa upya kwa kiroho, lakini ni mapashwa chini yake Mungu ameomba kutenda.
+#### Malipo ya binadamu
 
-### Matokeo ya Tendo la kuzaliwa upya kwa kiroho
 
-#### kuhusu uamuzi – watoto wa Mungu.
+Malipo ya wanadamu yanayohusika katika kuzaliwa upya ni masuala ya utii kwa amri za Munguâ€™s: kukiri, toba na imani. Hazinunuikuzaliwaupya, lakininihaliambazoMunguanahitajikufanyakazichiniyake.
 
-Tamko “ kufanya kuwa” (adoption) maana “kufanya kuwa watoto”. Kutokana na mafundisho, “adoption” “kufanya kuwa” na “ regeneration” “Tendo la kuzaliwa upya kwa ksroho yapasa kuwa tofauti. Kufanya kuwa “ adoption” ni tamko ya kisheria. Regeneration ni mabadiliko ya ndani ya kiroho. Ma budi mtu kuzaliwa katika jamaa ya Mungu (hii ni Tendo la kuzaliwa upya kwa kiroho), na hakufanye kuwa wa jamaa ya Mungu.
+### Matokeo za kuzaliwa upya
 
-* “Watoto” (neno la Kigriki: tekna) maana “wenye kuzliwa” imeonyesha tendo la kuzaliwa upya kwa kiroho (Yohana 1:12-13; Warumi 8:15-16; Yohana 3:1).
-* “Tendo la kufanya kuwa watoto” (neno la Kigriki: huiothesia) maana” “Tendo la kuweka tama mto” wagalatia 4:5.
-* "Mtoto" (neno la Kigriki: huios) imeonyesha kuwa mtu mzima (Warumi 8:14, 19; Waebrania 2:10). Tumezaliwa kama watoto wachanga katika tendo la kuzliwa upya kwa kiroho. Tendo la kufanya kuwa ni mwisho yako kazi tofauti na tendo la kuzaliwa upya kwa kiroho.
+#### Cheo – wana wa Mungu
 
-#### Kiroho – Ungano na Mungu (II Wakorinto 6:16-18; Wagalatia 4:4,6; I Yohana 3:24; 4:13; Wagalatia 2:20)
+Nenoâ€œkuasiliâ€maana yake halisi niâ€œkutoa nafasiya wana.â€Kimafundisho, kuasili na kuzaliwa upya kunapaswa kutofautishwa. Kuasili ni neno la kisheria. Kuzaliwa upya ni mabadiliko ya ndani ya kiroho. Mtu mmoja mmoja lazima AZALIWE katika familia ya Mungu (huku ni kuzaliwa upya), na ASIWE AKIWA katikafamiliayaMungu.
 
-#### Majibu ya ndani ya kimungu katika hali mpya ya maisha
+.
 
-1. Upya wa maisha (Warumi 6:4)
-2. Moyo mpya (Ezekieli 36:26)
-3. Roho mpya (Ezekieli 11:19)
-4. Mtu mpya (Waefeso 4:24)
-5. Asili (maumbile) mpya (II Petro 1:4)
+* â€œWatotoâ€ (Kigiriki: tekna) inamaanaâ€œwaliozaliwaâ€inamaanisha kuzaliwa upya (Yohana 1:12-13; Rum. 8:15-16; 1Yohana 3:1).
+* â€œKufanywakuwawanaâ€ (Kigiriki: huiothesia) inamaanaâ€œkuwekwa kama mwanaâ€ (Gal. 4:5).
+* “Mwana” (Kigiriki: huios) humaanisha ukomavu ( Rum. 8:14, 19; Ebr. 2:10 ). Tunazaliwa kama watoto wachanga katika kuzaliwa upya. Kwasili ni kazi tofauti na kuzaliwa upya.
 
-#### Maisha yenye haki kwa matendo
+#### Kiroho – muungano na Mungu (2Kor. 6:16-18; Gal. 4:5,6; I Yoh. 3:24; 4:13; Gal. 2:20)
 
-Mtu mwenye kuzaliwa na Mungu ataonyesha hiyo mambo kwa:
+#### Kukaa kwa kimungu husababisha aina mpya ya maisha
 
-1. Kuchukia kwake dhambi (I Yohana 3:9; 5:18)
-2. Matendo yake yenye haki (I Yohana 2:29)
-3. Upendo wake wa kindugu (I Yohana 4:7)
-4. Ushindi wake kwa duma (I Yohana 5:4)
+1. Upya wa uzima (Rum. 6:4)
+2. Moyo mpya ( Eze. 36:26 )
+3. Roho mpya ( Eze. 11:19 )
+4. Mtu mpya (Efe. 4:24)
+5. Asili mpya (2 Petro 1:4)
 
-Mazidisho mawili ya mestabili kuepukika katika kuweka hatua kwa ajili ya maisha yenye haki:
+#### Vitendo – kuishi kwa haki
 
-1. Kui fanya hatua chini zaidi – mabadiliko ya asili
-2. Kuifanya hatua juu zaidi – waminifu wadogo wata kua.
+Mtu aliyezaliwa na Mungu atadhihirisha ukweli huo kwa njia ya:
 
-Linganisha I Yohana 3:9 na I Yohana 2:1.
+1. Kuchukia dhambi (1 Yohana 3:9; 5:18)
+2. Matendo ya haki (1 Yohana 2:29)
+3. Upendo wa kindugu (1 Yohana 4:7)
+4. Ushindi juu ya  ulimwengu (1 Yohana 5:4)
+
+Mambo mawili yaliyo kithiri yanapaswa kuepukwa katika kuweka viwango vya maisha ya haki:
+
+1. Kufanya kiwango cha chini sana –Marekebisho ya Asili
+2. Kufanya waongofu wakiwango cha juu sana -wachanga
+watajikwaa.
+
+Linganisha 1 Yohana 3:9 na 1 Yohana 2:1.
+
+
+
+
+
+
+
+

@@ -1,51 +1,64 @@
-# Angelolojia: Mafundisho kuhusu Malaika
+﻿# Malaika: Mafundisho ya Malaika
 
 Mathayo 1:20, 24; Ufunuo 12:7
 
-## Asili (maumbile) ya malaika
+## Asili ya Malaika
 
-### Ishara Kuhusu hali
+### Tabia
 
-Mafasirio ya kebrania kuhusu malaika ni msimamizi wa Mungu wa hali juu ya mtu, kwa muda atoae mijumbe, kwa muda, alindae watu wa Mungu.
 
-#### Waliumbwa viumbe
+Ufafanuzi wa Kiebrania wa Malaika ni mwakilishi wa ajabu wa Mungu, wakati mwingine hutoa ujumbe, wakati mwingine kulinda watuwa Munguâ€™s.
 
-Malaika aliumbwa na wana mwanzo fulani. Haweko wa maisha la milele jinsi ya Mungu. Waliumbwa na Mungu na wana kuwa wa mfalme.
+#### Viumbe Vilivyoumbwa
 
-Idadi yao haijulikane kwa usahihi, walakini sababu hawazai wala kufa, idadi yao ya leo ni kama mwanzo wakati waliumbwa. Waebrania 12:2 imeonyesha idadi ya malaika kama “haihesabuliké” haihesabulike maana ni wengi kwa kuhesabuliwa. Katika maandiko ya Mathayo 26:53, imesema ya kua angewaita legoni kumina wawili ya malaika kwa kumsaidia.
 
-Legoni moja inna wa helfu sita ; lejoni kumi na wawili ingekuwa elfusabini na wawili ya malaika.
+Malaika waliumbwa na wana mwanzo dhahiri. Hawana umilele katika maana ya kama Mungu alivyo. Waliumbwa na Mungu na ni mali ya Bwana.
 
-#### Viumbe vya kiroho (Zaburi 104:4)
 
-Japo malaika wana majina ya wanawume, kama vile, Michael na Gabriel, malaika niviumbe vya kiroho na siyo wakiume wa kike. Malaika hawaai wala kuwa na jamaa. Katika maandiko ya Marko 12:25, wametueleza ya kuwa wakati wakristo wataingizana mbinguni, watakuwa kama malaika kwa maana ya kuwa hawakaoa wala kupewa kwa ndoa (Luka 20:36).
+Idadi ya malaika haijulikani hasa, lakini kwa kuwa hawazalainia wala hawafi, idadi hiyo hiyo iliopo leo ni sawa na ile walipoumbwa. Waebrania 12:22 inaelezea idadi ya malaika kama â€˜ wasiohesabika.â€™ Kutohesabika kunamaanisha hawahesabiki; wengi sana kuhesabu. Katika Mathayo 26:53, inasema kwambaYesu angeweza kuita majeshi 12 ya malaika kumsaidia. Jeshi moja ni sawa na watu 6,000; Majeshi 12 yange kuwa malaika 72,000.
 
-Malaika kamwe siye watu, lakini waliumbwa kama malaika. Hakuna maandiko imeonyesha hata siku moja ya kuwa watu nao wamekuwa malaika. Tena, japo wameweza kuonekana kama watu, hawana miili ya kimutu. Kuna mifano mengi yenye kuandikwa katika Biblia kuhusu malaika wenye kuonekana kama watu.
+#### Viumbe wa Roho (Zaburi 104:4)
 
-1. Mwaloni ni Gideone malaika aliketi chini (Wamuzi 6:11-12)
-2. Malaika aliongea Zakaria (Zakaria 1:9)
-3. Zakaria malaika alimtokea (Luka 1:11)
-4. Miriamu aliona katika malaika (Luka 1:29)
-5. Tuliagizwa kupokea wageni kwa sababu tuliweza kupokea malaika bila kufahamu (Waebrnia 13:2)
 
-#### Wenye mamlaka, lakini yenye misho
+Ingawa malaika wana majina ya kiume, kama vile Mikaeli na Gabrieli, malaika ni viumbe wa kiroho na si mwanamume wala mwanamke ( Luka 20:36 ).
 
-Malaika ni viumbe vyenye mamlaka, walakini mamlaka yao ina mwisho. Malaika moja aliua elfu mya moja ya assyriani katika usiku moja. (2 wafalme 19:35) Malaika mwengine alitumwa na Mungu kuiharibu gerusalemu, lakini akuyamaliza uharibifu katika I Mambo ya Nyakati 21:15. Hiyo maandiko imeonyesha mamlaka na mwisho ya malaika. Walikuwa na mamlaka ya kuharibu muji mizima, walkin wakatin mungu aliwa ambia kuacha, wapshwa kuacha. Malaika hawezi kutenda bila kumtegemea Mungu. Haki shetani (‘malaika ambae alitupwa’ hama ‘Ibilisi’) alihitaji ruhusa tutokea kwa Mungu ili amtendee yobo na jamaa yake.
 
-Malaika haweko mahali pote, hawana mamlaka zote, wala hawana ufahamu wote. Malaika watahutumiwa na watu wa Mungu (I Wakorinto 6:3). Malaika walikuwa na nia ya kuyajua maana ya injili (I Petro 1:12), hii imeonyesha ya kuwa uelevu wao una mwisho.
+Malaika hawana familia wala hawaoi. Katika Marko 12:25, tunaambiwa kwamba Wakristo wanapofika Mbinguni wangekuwa kama malaika kwamaana ya kwamba wao hawaoi wala hawaolewi.
 
-### Haina
 
-Kuna daraja fulani ya malaika.
+Malaika hawakuwahi kuwa wanadamu, bali waliumbwa kama malaika. Hakuna Maandiko ambayo hatayanayo pendekeza kuwa wanadamu waliwahi kuwa malaika, vile vile. Pia, ingawa wanaweza kuonekana kama wanaume, hawana miili ya kimwili. Kuna mifano mingi iliyoandikwa katika Biblia ya malaika kuonekana kama wanadamu:
 
-#### Malaika mkuu
+1. Malaika aliketi chini ya mwaloni pamoja na Gideoni
+   (Waamuzi 6:11-12)
+2. Malaika alizungumza na Zekaria (Zekaria 1:9)
+3. Malaika akamtokea  Zakaria (Luka 1:11)
+4. Mariamu alimwona malaika (Luka 1:29)
+5. Tunaonywa kuwa karibisha wageni kwasababu tunaweza kuwa
+Tunawakaribisha malaika bila kujua (Waebrania 13:2).
 
-Malaika mkuu ni malaika wa hakwa ya juu zaidi. Michael ameitwa malaika mkuu katika maandiko ya Yuda 9. I Wathesalonika 4:16 imesema ya kuwa wakati Kristo atarudi, atatanguliwa nasauti ya malaika mkuu.
+#### Ni wenye nguvu lakini iliothibitiwa
 
-#### Serafina
+Malaika ni viumbe wenye nguvu sana, lakini uwezo wao ni mdogo. Malaika mmoja aliwaua Waashuru 185,000 kwa usiku mmoja. ( 2 Wafalme 19:35 ) Malaika mwingine alitumwana Mungu kuharibu Yerusalemu, lakini hakuweza kukamilisha uharibifu katika 1 Mambo yaNyakati 21:15. Vifungu hivi vinaonyesha nguvu na mipaka ya malaika. Walikuwa na uwezo wa kuharibu majiji yote, lakini Mungu alipowaambia waache walilazimika kuacha. Malaika hawawezi kufanyakazi bila Mungu. Hata shetani (a â€˜ Malaika aliyeanguka â€™ au â€ Mwovu â€™) alihitaji kibali kutoka kwa Mungu kufanya lolote kwa Ayubu na familia yake.
 
-Waserafina wametajua tu katika kitabu cha Isaya 6:2-6. Jina serafina imetoa picha ya mwali (sawa na rangi ya mutuba). Isaya amewafasiria kama wamekuwa na mabawa sita: mawili yenye kutanda uso, mawili miguu, na mawili ya kuruka nayo. Milango imetetemeka kwa sauti ya kulia kwao, "Mtakatifu, mtakatifu, ni mfalme wa majeshi: ulimwengu zima imejaa na sifa yako." Malaika moja ambae alitumia kamba, alichukuwa makaa yenye moto kwa madhobahu na aliyagua midono ya Isaya. Hiyi ni dalili ya maondolea ya dhambi ya Isaya.
+Malaika hawako kila mahali, hawana uwezo wote, wala si wajuzi  wa yote. Malaika watahukumiwa na Mungu â€™s watu (1Kor. 6:3). Malaika wanatamani kuangalia maana ya Injili (1 Petro 1:12); hii = inaonyesha kwamba uelewa wao ni mdogo.
+
+### Madaraja
+
+Kuna madaraja yaliyodhahiri ya  malaika.
+
+#### Malaika Mkuu
+
+#### Maserafi
+
+
+Malaika mkuu au â€Malaika Mkuuâ€™ ndiye malaika aliye na nafasi ya juu zaidi. Mikaeli anaitwa malaika mkuu katikaYuda 9. I Wathesalonike 4:16 inasema Kristo atakaporudi atatanguliwa na sauti ya Malaika Mkuu.
+
+Maserafi wanatajwa tu katika Isaya 6:2, 6. Jina maserafi linaonyesha kuungua au moto (kama kuwa na rangi ya shaba). Isaya awaeleza kuwa na mabawa sita: mawii yanayofunika uso wake, mawili ya kufunika miguu yake na mawili ya kuruka nayo. Miimo ya milango ya nyumba ikatikisika kwa sauti ya kilio chao, Mtakatifu, Mtakatifu, Mtakatifu, ni BWANA wamajeshi; dunia yote imejaautukufu wake. Madhabahuni na kugusa midomo ya Isayaâ€™s. Huu ulikuwa ni utakaso wakiishara wa dhambi za Isayaâ€™s.
 
 #### Makerubi
 
-Haina ya malaika imeandikwa kila mara. Materubi wametoa huduma yao mbele ya Mungu na wameihinda myumba ya Mungu. Makerubi walichukuliwa picha kwenye sanduku la Agano na kwenye kiambaza ya hekalu ya Sulemani kama ni wenye kusimama kwa upande ambili ya Mungu kando kando ya kiti cha rehema.
+
+Kundi la malaika linalotajwa mara kwa mara ni makerubi. Makerubi hutumikia mbele za Mungu na kulinda nyumba ya Mungu. Makerubi walionyeshwa kwenye Sanduku la Agano na kwenye kuta za Hekalu la Solomonâ€™s wakiwa wamesimama pande zote za Mungu kando ya kiti cha rehema.
+
+
+

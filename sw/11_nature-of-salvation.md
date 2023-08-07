@@ -1,116 +1,98 @@
-## Haina za Wokovu
+﻿## Asili ya wokovu
 
-### Haina tatu ya wokovu
+## Vipengere vitatu vya wokovu
 
-1. Kuhesabuliwa kwa haki (Tomko za sheria yenye kuleta kwa akili zetu mambo ndani ya chumba cha wamzi)
-2. Kuzaliwa upya (Kuzaliwa katika jamaa, yenye kuleta kwa akili zetu mambo dani ya nyumba)
-3. Utakaso (Niyenye kuambatana na kuabudu, yenye kuleta kwa akili zetu mambo ndani ya hekalu)
+1.Kuhesabiwa haki (Utaratibu wa kimahakama unaletwa katika fahamu zetu chumba cha mahakama)
+2.Kuzaliwa mara ya pili(kuzaliwa katika familia,kuleta katika fahamu zetu hali au madhari ya nyumbani)
+3,Utakaso (Kuunganishwa katika ibada,kuleta madhari ya hekalu)
 
-Mtu mwenye kwokolewa ni huyu ambae amehesabuliwa hakinbele ya Mungu (KUHESABULIWA KUWA HAKI) na kuzaliwa katika jamaa ya Mungu (KAZLIWA UPYA) na kutolewa kwa kazi za Mungu (UTAKASO).
 
-1. Kuhesabuliwa kuwa haki,
-2. mefanywa kuwa haki kuzaliwa upya, amekuwa mtoto wa Mungu.
-3. Kupata utakaso, amekuwa mtakatifu. (Kutakaswa).
+Mtu aliyekoka ni Yule ambaye amewekwa sahihi kwa Mungu(KUHESABIWA HAKI) na kuzaliwa katika familia ya Mungu(KUZALIWA MARA YA PILI) na sasa ni kuwekwa wakifu katika huduma ya Mungu(UTAKASO).
 
-Baraka hizi zinafuatana moja baada ya ningine ao zimezitokeza wakati moja? Kweli, tumeona utaratibu huu:
+1.Kuwa aliyesabiwa haki,ni kwamba amefanywa kuwa haki.
+2.Kuwa aliyezaliwa mara ya pili,ni kufanywa mtoto wa Mungu.
+3.Kuwa aliyetakaswa ni kufanywa “mtakatifu.” 
 
-1. Kuhesabuliwa kuwa hati mbele ya sheria ya Mungu (Warumi 3:24) - kuhesabuliwa haki
-2. Hali mupya imepewa (Yohana 3:6) - kuzaliwa upya
-3. Kutiwa katika maisha na kazi mpya (Waefeso 2:10) - Kutakaswa
+Fanya Baraka hizi futilia moja moja au zenyewe zitajitokeza? Tunauona utaratibu:
+ 
+1.Kuwekwa haki katika mahusiano na sheria ya Mungu(War 3:24)-ALIYEHESABIWA HAKI
+2.Asili mpya imewekwa(Yohn 3:6)-ALIYEZALIWA MARA YA PILI
+3.Kutengwa kwa ajili ya maisha mapya na utumishi (Waefeso 2:10)-ALIYETAKASWA 
 
-Kumbe, hiyo matatu imezitokeza mara moja, tena imetengana tu kwa mafaa ya kuyallewa na kuyafunza kwa njia ya matumizi ya damu ya bwana Yesu yenye thamurni, haya yote yime pokelewa. Kwa mara, tumehesabuliwa haki, tumezaliwa upya, na tumetakaswa.
+Bado,zoevu zote tatu ni za wakati huo huo,na zimetengwa tu kwa kusudi la ufahamu na kujifunza.Kwa kazi moja ya damu ya thamani ya Yesu zoevu zote tatu hupokelewa.Kwa mfano,tumehesabiwa haki,tumezaliwa mara ya pili,tumetekaswa.
+ Ingawa utakaso kazi ya mwanzo na imekamilika katika wokovu,utakaso pia ni mchakato endelevu.Hali ya mwisho ya utakaso kamili ni utimilifu.(Tutaangalia kwa ukaribu utakaso katika somo lijalo.) 
+Baraka zote hupatikana kwa malipo ya kifo cha Kristo.Pia,Baraka zote tatu hububujika kupitia umoja wetu na Kristo((2 Wakr. 5:21; Waefes. 1:7; 2 Wakr. 5:17).
 
-Japo utakason ni kazi fulani nyenye kutendwa wakati wa wokovu, utakason nitena kazi yenye kuendelea. Hali ya mwisho ya utakason timilifu ni ukamilifu (Tutasungumzia viguri kuhusu utakason katika mafungo ufwatayo).
+### Wokovu ni wa pande- mbili: INJE & NDANI
+#### Kuhesabiwa
+Badiliko la nafasi:ALIKUWA ndani ya dhambi,SASA yuko ndani ya “Kristo” (2 Wakr. 5:17).
 
-Hiyo baraka zote zimetolewa kwa njia ya kifo ya christo. Tena, hiyo baraka matatu imetoka kwa ushirika wetu na Kristo (II Wakorinto 5:21; Waefeso 1:7; II Wakorinto: 5:17.  
+ Badiliko katika hali:Mwenye dhambi kuwa mwenye haki(Zab. 51:5; I Wakr. 6:11).
 
-### Wokovu imekuwa haina mawili: YANJE na YA NDANI
 
-#### Kuhesabuliwa kuwa kaki
+Humaanisha kuwekwa katika uhusiana sahihi na Mungu.Tunapokuwa tumehesabiwa haki,tumefanywa haki.Inakuwa kama vile hujawahi kutenda dhambi.
+ #### Kuzaliwa mara ya pili
+Badiliko la asili-“kiumbe kipya”ULIKWA motto wa Ibilis,SASA ni motto wa Mungu(asili ya kiungu)
 
-Mabadiliko kwa hali: ilikuwa katika dhambi “ndani ya kristo” (II Wakorinto 5:17).
+####Utakaso
+Badiliko la tabia-“mambo ya kale yamepita,tazama yote yamekuwa mapya”
+Kuwa na matunda ya Roho yaliyowekwa kwa Kristo(Wag. 5:22-24).Utengano wa inje na utakaso wa ndani kutoka dhambi(2 Wakr. 7:1).
+### Mashariti ya wokovu
+### Humaanisha nini mashariti ya wokovu?
+Vigezo vya Mungu kwa mtu anayemkubali Kristo kwake yeye ambaye hutoa Baraka za injili ya neema.Chini ya mashariti yapi Mungu hutoa zawadi ya  bure ya wokovu?Kwa urahisi lazima kuwe na uzima! (War. 8:16
 
-Mabadiliko kwa hali: kutoka kwa hali mwenye dhambi kwa hali ya mwenye hali (Zaburi 51:5; I Wakorinto 6:11).
 
-Maana yake kutiwa katika urafiki kamilifu na Mungu wakati tumehesabuliwa kuwa haki, tumefanywa kuwa wenye habi. Imetuwa sawa kamwe sija tenda dhambi.
+#### Mashariti ya wokovu ni nini?
+Maandiko matakatifu huweka wazi:Toba-Imani -Ukiri(Mark 1:15; Matendo 22:16; 16:31; Warumi. 10:9-10; Waebr. 11:6; Matendo 8: 13, 21).
 
-#### Kuzaliwa upya kwa kiroho
+#### Kwa ufahamu je imani inatosheleza?
 
-Mabadilikikalika- moumbile- “kiumbe kipya”
+Hapana.Tunapaswa kuwa na cha ziada kuliko kile mashetani wanacho!Huamini na kutetemeka lakini bado hufanya kazi kinyume cha Mungu(Yak 2:19). D. L. Moody alisema, “tilia shaka mashaka yako na uamini Mungu.”
 
-Alikuwa mtoto wa Ibilisi, sasa mtoto wa Mungu (Maumbile ya Kimungu).
+Tazama pia matendo 8:13, 21.
+ 
 
-#### Utakaso
+#### Ni nini tofauti kati ya imani na kusadiki?
 
-Mabadiliko katika mwenendo- “vitu vya kale vimekwisha kupita, kila kitu kimekuwa kipya”.
+Imani ni shughuli ya kiungu(Waefs. 6:17; Yohn 6:44; War. 10:17).
+Kusadiki ni tendo la binadamu.Mungu hututazamia tumwitikie kwa imani aliyoiweka ndani yetu na kututaka tusadiki(Mark 5:36)Mungu anapo wavuta watu hutazamia kitu fulani ndani yao kwasababu hatuwezi kumwitikia kihalsi mpaka tuwe. na imani Waeb 12:2 Kristo mwanzilishi  na mkamilishaji wa imani yetu.Yeye hutusaidia kusadiki.
+Yohn 1:1 “Neno” logos \[056\]neon liloandikwa,neon lililo hai(kiini cha asili).Biblia takatifu na Kristo ni neon lililo hai,logos.War 10:17 “Neno” rhema\[4487\]neon lililo nenwa(kiini cha asili ya Mungu);Rhema hurejea kwenye neon maalum lililo zungumzwa na Roho mtakatifu kwako.Ni neon lililofunuliwa la Mungu.
 
-Kuwa na tunda za Roho na kuwa katika Kristo (Wagalatio 5:22-24).
 
-Matengani za nje na utakaso wa ndami kwa dhambi (II Wakorinto 7:1).
+####Ni nini tofauti kati ya toba na imani kuhusu wokovu?
+| Imani inahusika na ahadi za Mungu.| Toba inahusika na dhambi.|
+|------------------------------------------------|----------------------------|
+ |Hupokeea wokovu.                     | Hukataa dhambi.
 
-### Haliza Wokozu
+Imani hukaa juu ya rehema za Mungu(Waef. 2:8-9; Luk 18:13; 13:3).
 
-#### Maana yake nini “Hali za wokovu”?
 
-Mahitaji ya Mungu katika mtu ambae amekubali kwa faida ya Kristo na kwa ajili yake Ametoa katika uhuru baraka ya injili ya neema. Kwa hali gani Mungu ametoa kipawa cha bure cha wokovu? Juu kumekuwa maisha tu! (Warumi 8:16)
+#### Ni nini amri ya Mungu kwa watu wote?
 
-#### Wokovu ina mahitaji gani?
+Kila mtu anatakiwa kutubu,ikiwa ni pamoja na wale walioko ndani ya kanisa Matendo 17:30; Uf. 2:5, 16, 21; 3:3, 19).Kutubu ni kuacha kufanya chochote kibaya unachofanya.Baadhi ya madhehebu hupendekeza wewe utubu dhambi za wakati uliopita,uliopo,na ujao.Unawezaje kutubu(kuacha kufanya )kitu ambacho hujawahi kufanya?Tunaweza tu kutubu dhambi za wakati uliopita na za wakati uliopo.
 
-Maandiko imefumbua: Utubio — Imani — Kukiri (Marko 1:15; Matendo 22:16; 16:31; Warumi 10:9-10; Walbramia 11:6; Matendo 8:13, 21).
+#### Kunaweza kuwa na imani pasipo toba?
+Hapana.hakuna awezayye kupokea ahadi ya Mungu pasipo toba. Mark 1:15; Yon 3:5-10).
 
-#### Imani yenye akili itosha?
+#### Je panaweza kuwa na toba ya kweli pasipo imani?
+Hapana.Tunamhitaji Mungu katika kila hatua ya uzoevu wa ukristo wetu na yote haya ni kumtegemea yeye.Ni lazima tupokee kila neema ya kikristo toka kwa Mungu na Mungu huitikia kupitia imani tuu. (Waeb. 11:6; 2 Tim. 2:25). Ni Roho mtakatifu tu ndiye ambaye huleta uguso kwa watu kuhusu dhambi na kupelekea toba.
 
-Hamna. Imetupasa kuwa na zaidi kuliko mashetani! Wameaminia na kutetemeka na tena wameendelea kutenda kinyume ya mapenzi ya Mungu (Yakobo 2:19). D. L. Moody alisema, “Shakia shaka zako na amini Mungu.”
+#### Imani na toba kirahisi ni vya kimaandalizi ya wokovu?
+Hapana.Imani na toba ni vitendo endelevu katika maisha ya muumini(Waef 3:17; Uf 3:19).
 
-Angalia pia Matendo 8:13, 21.
+### Wongofu (Waef3:17; Uf 3:19).
+#### Wongofu unahusisha nafsi zima ya mtu
+1.Kiakili(Matendo 2:37-38) “walisikia”
+2.Kivitendo(Matendo 2:37-38) “walichomwa mioyo”
+3.Kimatakwa (Matendo 16:27-31)  “tufanye nini?”
 
-#### Nitofauti gani imefuwa kati ya imani na usadiki?
+#### Ni kwa jinsi gani wongofu unatofautiana na wokovu?
+Wongofu unaelezea upande wa mtu kwa wokovu(Luk 19:8-9; Matendo 9:11; 16:33-34; Wafl. 2:12-13).
 
-Imani ni kazi ya kiroho. (waefeso 6 :17 ; yohana 6 :44 ; warumi 10 :17). Kusadiki ni tendo za kimutu. Mungu ametngoja tutoe jibu kwa imani ambao alitia kati yetu na ametuamuru kusadiki. (Marko 5:36). Wakati Mungu ameumba mtu, ametafuta ndani mwake kitu ili kusudi tusiweze kujibu sawasawa kwa Mungu, isipokuwa kama tuna imani. Waebrania 12:2- Tukimtazama yesu, mwenye kuanzisha na mwenye kutimiza imani yetu; ametusahidia to sadiki.
 
-Yohana 1:1- “Neno” logos (3056) – neno yenye kwandikwa, neno iliyo hai (chanzo ya asili) Biblia takatifu na Christo, ne lenye hai, ni logos.
 
-Warumi 10:17 “Neno” Rhema (4487) - neno yenye kunenwa (chanzo ya kiriho); Rhema umekumbusha neno tofanti yenye kunenwa kwako na roho. Ni neno la Mungu yenye kudhihirishwa.
+#### Ni kipi kinachotangulia,kuzaliwa mara pili au wongofu? 
+Sio lazima kimoja kimtangulie mwingine.Ni sahihi kusema kwamba kuzaliwa mara ya pili ni kitendo cha Mungu ndani ya mtu na wongofu ni kitendo cha mtu kumwelekea Mungu.Kuzaliwa mara ya pili na wongofu hufanya kazi pamoja kwa wakati ule ule.
+“Mahali Fulani kati ya mguu na aridhi,Zakayo aliongoka.”D.L.Moody
 
-#### Ni tofauti gani zimepatikana kati ya utubio na imani kuhusi wokovu?
-
-| Imani imeusika ma ahadiya Mungu. | Utubio imeusika na dhambi. |
-|----------------------------------|----------------------------|
-| Imepokea wokovu.                 | Imekatoa dhambi.           |
-
-Imani imepatikana katika Rehema ya Mungu (Waefeso 2:8-9; Luka 18:13; 13:3).
-
-#### Mungu aliamuru ni kwa watu?
-
-Kila mtu amepashwa kutubu, na wale wamepatikana ndam ya kanisa  (Matendo 17:30; Ufunuo 2:5; 3:3, 19). Kutubu ni kuacha kutenda kila kitu umetenda. Madhehbu zingine zimesaili kutubu dhambi zote wakati wa wokovumbele- leo na kesho. Vipi umeweza kutubu (hama kuacha) kitu ambao haukutende? Tumeweza tu kutubu dhambi ya mbele na ya leo.
-
-#### Kumeweza kuwa imani bila utubio?
-
-Hamna. No one can receive the promises of God without repentance (Mark 1:15; Jonah 3:5-10).
-
-#### Imani na utibio ni matayarisho tu kwa wokobu?
-
-Hamna. Tumehitaji Mungu kwa kila hatua katika maisha yetu ya kikristo na tumemtegemea kwa yote. Imetupasa kuyapokea kila neema ya kikristo kutokea kwa Mungu na Mungu amejibu kwa imani (Waebrania 11:6; II Timotheo 2:25). Ni roho mtakatifu imeleta hakikisho za dhambi imepeleka watu kwenye utubio.
-
-#### Are faith and repentance simply preparatory to salvation?
-
-Hamna. Imani na utubio imekuwa katika maendeleo katika maisha ya mwaminifu (Waefeso 3:17; Ufunuo 3:19).
-
-### Kugeuka (Matendo 3:19 ; Mathayo 18:3; Luka 22:32; Yakobo 5:20)
-
-#### Kugeuka imechukua utu uzima:
-
-1. Katika akili (Matendo 2:37-38) “Wamesikia”
-2. Katika roho (Matendo 2:37-38) “Kuchomwa moyoni”
-3. Kwa matendo (Matendo 16:27-31) “Tutafanya nini?”
-
-#### Vipi kugeuka imetofauti na wokovu?
-
-Kugeuka imeonyesha sehemu ya utu ya wokovu (Luka 19:8-9; Matendo 9:11; 16:33-34; wafilipi. 2:12-13).
-
-#### imekuwa ya kwanza-kuzaliwa upya ao kugeuka?
-
-Moja haififi mbele ya ingine. Ni neno Kamilifu kusema kwamba kuzaliwa upya ni tendo la Mungu katika mtu na kugeuka ni tendo la mtu kwa Mungu. Kuzaliwa upya na kugeuka imetenda pamoja kwa mara moja.
-
-“(sehemu moja) kati ya kiungo cha mwili ne chini kwa udongo, zaccheus aligeuka” —D. L. Moody
 

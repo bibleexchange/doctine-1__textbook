@@ -1,26 +1,31 @@
-Mafundisho Kuhusun Dhambi
+﻿
+# Harmartiology- Mafundisho Kuhusu Dhambi
 
-# Harmartiology
 
-Tumetoa nukta za mafundisho kuhusu dhambi kama harmartiology ya mzizi tamko- harmartia ni tamko za kiyunani yenye mana dhambi. Imetoka kwenye tamko yenye maana kamili ya kutokufika kwenye mwisho ili kusudi kuipata tuzo. Tamko za mwisho- ology maana: maarifa. Imeitwa maanifo, sababu imeundwa kwa jinsi ya mbinu na usahihi.
 
-## Jambo Kuhusu Kuanguka
+Tuna taja somo la mafundisho kuhusu dhambi kama harmartiology yenye mzizi wa tamko-la harmartia ni tamko la kiyunani lenye maana ya dhambi. Ikimaanisha kulikosa lengo na kutopata tuzo.Tamko la mwisho-ology humaanisha maarifa.Huitwa maarifa kwasababu ya kimfumo na utaratibu uliopangwa kwa mbinu sahihi.
+ 
+## Hali ya anguko
 
-### Mti wa ufahamu wa mazuri na mabaya.
+### Mti wa ujuzi wa mema na mabaya.
 
-Katikati ya bustani kukikuepo miti mbili ya lengo ya maisha. Ya kwanza ilikuwa mti ya maisha, bali ya pili ilikuwa mti yenye kukatazwa, yani ya ufahamu ya muzuri na mabaya. Sababu gani Mungu aliyatia hiyo mti mbovu katikati paradiso yenye raha ya Edeni?
+Katikati ya bustani kulikuwepo miti miwili ya lengo la maisha. Wakwanza ulikuwa ni mti ya uzima, bali wa pili ulikuwa mti uliokatazwa, yaani wa ujuzi wa mema na mabaya.Kwa nini Mungu aliutia huo mti katika ya bustani  ya Edeni? 
 
 ### Mjaribu.
 
-Katika kujaribu kwake umbo la tajila Mungu, shetani alitumiya mbfano wa nyoka. Tabia yake ya upekee huyu nyoka ilikuwa ujanja zaidi kuliko nyama lolote za mwituni (shambani) ambayo mfalme Mungu aliumba. Nyoka, shetani, alikuwa malaika mwenye kulainiwa na mwenye kuinukia Mungu. Sababu gani yule aliruhusiwi kuingizana dani ya bustani? Hama sababu gani aliruhusiwi Kutenda katika mahali hiyi yenye kubarikiwa? Ilikuwa kwa kumpima Mtu.
+Katika jaribio lake la taji ya uumbaji wa Mungu,Shetani alimwajiri wakala nyoka.Sifa za inje za huyu nyoka zilikwa kwamba alikuwa mwerevu kuliko wanyama wote wa mwituni aliowaumba Bwana Mungu.Nyoka,Shetani,alikuwa ni Yule aliyelaaniwa milele na malaika mwasi wa Mungu.Kwa nini aliruhusiwa kuingiza mguu katika bustani,au kurusiwa kufanya kazi katika eneo la Baraka?Jibu ni kwamba alikuwa ni kipimo cha mwanadamu.
 
-### Jambo kuhusu kupima
+### Jaribio
 
-Jibu hiyi imetujuzu kufika kwenye swali ya mwisho ambayo ni mpango- sababu gani ilokuwa ya muhimu kumpima mtu?
+Swali linalo tangulia hutuongoza kwenye swali la mwisho la kusudi-kwanini ilikuwa lazima kwa mwanadamu kujaribiwa?
 
-Ya kwanza, mapenzi la Mungu ni urafiki na watu ambaye wamechagua kumpenda. Haitaji mtu na uwamuzi wa vitu ambayo havina mafikiri lolote (robote).
+ Hebu na tufikirie maswali mengine mawili yanayohusiana:Let us consider two other relevant questions:
 
-Ya pili, ili kusudi “uchaguzi” ukuepo, kumepashwa kuwa uchaguzi mbili, na kama sivyo, akuna “uchaguzi lolote”. Kumbe, mti wa ufahamu ilikuepo kwenye bustani ili kusudi kuupima uambatano wa mtu na Mungu. Kumbe wache tushururikie swali hiyi mbili kamili:
+1.Je kushindwa kwa mwanadmu kunaonyesha udhaifu wa Mungu? Hapana.Mungu hashindwi.Mungu alimuumba na kumbuni mtu,lakini yeye pia tena akampa mtu uhuru wa kuchagua.Anguko la mwanadamu kiasi cha dosari ya Mungu.bali linasisitiza ubunifu wa ajabu wa Mungu.Mungu alibuni hivyo ili mtu aweze kumchagua Mungu,lakini pia alikuwa na uhuru wa kutokumchagua Mungu na kuchagua njia zake.
 
-1. Udhaifu wa Mtu ulitoka kwa Mungu? Hamna . Mungu hana udhaifu na kamwe haanguki. Mungu aliumba na kumfanya mtu, walakini alimpatia tena uhuru katika uchaguzi. Kuanguka kwake mtu haionyesho ubovu wa mpango wa Mungu, walakini imedhihirisha ukubwa wa mpango huwu. Mungu aliipanga hivyo ili kusudi mtu amchague Mungu, walakini alikuwa tena na uhuru ya kutokumuchagua Mungu na manjia yake.
-2. Adamu alipashwa kutenda dhambi? Hamna. Ikaua Adamu alipashwa kuyatenda, hakungi kuwa “uchaguzi” halisi, kuani Adamu hange kuwa na “uchaguzi” lakini dhambi katika majaribu kutekea kwa Mungu, kumetoka tena neema za kushinda! Tumeweza kuyashinda kwa ajili ya neema yake Mungu. Kulikuepo na tena kumekuwa uwezo wa kushinda (Yuda 24).
+Shauku ya kwanza ya Mungu ni kuwa na ushirika na watu wanao chagua kumpenda.Yeye hakusudii kuwa na sifa na (roboti) wasio kuwa na ufahamu.Pili ilikuwepo na ‘uchaguzi’ni lazima kuwepo na angalau machaguo mawili au vinginevyo hapangekuwa na chaguo.’kwa hiyo mti wa maarifa uliwekwa kwenye bustani kupima ibada ya mtu kwa Mungu.
+ 
+ Hebu na tufikirie maswali mengine mawili yanayohusiana:
+ 
+1.Je kushindwa kwa mwanadmu kunaonyesha udhaifu wa Mungu? Hapana.Mungu hashindwi.Mungu alimuumba na kumbuni mtu,lakini yeye pia tena akampa mtu uhuru wa kuchagua.Anguko la mwanadamu kiasi cha dosari ya Mungu.bali linasisitiza ubunifu wa ajabu wa Mungu.Mungu alibuni hivyo ili mtu aweze kumchagua Mungu,lakini pia alikuwa na uhuru wa kutokumchagua Mungu na kuchagua njia zake.
+ 2. 2.Je Adamu alilazimishwa kutenda dhambi?HAPANA.Ikiwa Adamu alizimishwa kutenda dhambi,bado hapangekuwa na ‘uchaguzi wa kweli’Adamu kirahisi hangekuwa na chaguo bali ni kutenda dhambi.Kwa kila kipimo toka Mungu huja pia neema ya kushinda!Tunaweza kushinda jaribio kwa neema ya Mungu.Ilikuwepo kwa ajili ya Adamu na upo kwa ajili yetu uwezo wa kuto anguka(Yuda1:24). 

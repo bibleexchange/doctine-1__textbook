@@ -1,4 +1,4 @@
-# Soteriology: Mafundisho Kuhusu Wokovu
+﻿# Mafundisho Kuhusu Wokovu:
 
 ## Utangulizi
 
@@ -14,7 +14,7 @@ Tumetumia matamko “tano makubwa” kwa kufananisha na mafundisho makuu na yeny
 
 Wokovu nitamko yenye kupatikana yote dani. Tamko wokovu maana ufungulivu asalama, kutenzwa, ubora, yenye kundi kwa halizambele, na uponyaji.
 
-Wokovu katika agano jipya ya kiyunani:
+Wokovu katika agano jipya la kiyunani:
 
 1. Majina - Sotaia; Sotaion (4991,4992) Luka 1:69; 2:30; Matendo 4:12
 2. Verb - Sozo (4982) Mathayo 1:21; Yohana 10:9; Matendo 15:11.
@@ -33,4 +33,5 @@ Kuokolewa ni kuachiliwa:
 * Tulipofuka, lakini sasa tumeona.
 * Tulihukumiwa lakini sasa tumeachiliwa kwa hukumu (Warumi 8:1).
 
-Tutasungumzia nukta hiyi: Nikitu gani kimekuwa wokovu? (ao) Hali za neema.
+Tutazungumzia nukta hii: Ni kitu gani kimekuwa wokovu? (au) Hali za neema.
+
