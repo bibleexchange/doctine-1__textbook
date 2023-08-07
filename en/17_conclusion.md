@@ -8,3 +8,4 @@ The following doctrines are excluded from this particular study in any depth bec
 4. Ecclesiology is covered in LOCAL CHURCH & EPISTLES I, II, & III.
 5. Eschatology is covered in PROPHECY & REVELATION.
 6. Expiatology is covered in PENTATEUCH
+

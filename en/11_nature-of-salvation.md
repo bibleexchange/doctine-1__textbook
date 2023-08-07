@@ -112,5 +112,5 @@ Conversion describes the human or man-ward side of salvation (Luke 19:8-9; Acts 
 
 One does not necessarily precede the other. It is more accurate to say that regeneration is God’s action in man and conversion is man’s action toward God. Regeneration and conversion work together at once.
 
-“Somewhere between the limb and the ground, Zaccheus was converted.” —D. L. Moody
+“Somewhere between the limb and the ground, Zaccheus was converted.” — D. L. Moody
 

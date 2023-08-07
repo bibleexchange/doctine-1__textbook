@@ -12,7 +12,7 @@ Authoritative statements are so important that we may be able to "convince the g
 
 Every experience we enjoy with God is dependent on faith. Faith is not a shot in the dark, but is securely founded on the Word of God (Romans 10:17). Paul asks a significant question that establishes our point in Romans 10:14, "_how shall they believe in him of whom they have not heard?" Correct doctrinal knowledge is essential, because it is not sufficient to just believe in _something_, but we must possess that which is truth. God does not respond to "hope-so's", or "I've been told that...," but God does respond to faith in His Word.
 
-EXAMPLE: In Acts 17:22-34 the people of Athens had erected an altar with the inscription "To the Unknown God." Paul declared on Mars Hill that this Unknown God whom they ignorantly worshipped was the God who made Heaven and earth. The people of Athens had not known SALVATION through ignorant worship, but those that came to the knowledge of Jesus Christ and him crucified and resurrected from the dead did absolutely experience salvation! I Timothy 4:16 infers that the if we do not _take heed unto the doctrine_than we will be lost
+EXAMPLE: In Acts 17:22-34 the people of Athens had erected an altar with the inscription "To the Unknown God." Paul declared on Mars Hill that this Unknown God whom they ignorantly worshipped was the God who made Heaven and earth. The people of Athens had not known SALVATION through ignorant worship, but those that came to the knowledge of Jesus Christ and him crucified and resurrected from the dead did absolutely experience salvation! I Timothy 4:16 infers that the if we do not _take heed unto the doctrine_than we will be lost.
 
 ## Doctrinal knowledge is essential to the full development of Christian character, and contributes to our instruction in righteousness (II Tim. 3:16-17)
 
@@ -28,7 +28,7 @@ Jesus is our foremost example and He had doctrine (Matthew 7:28-29; Mark 1:22; L
 
 Why is doctrine so important? Read Eph 4:14.
 
-We need sound doctrine and conviction for those truths. We need to what we believe and why we believe it. An ignorant Christian does not scare the devil. Many people compromise and fall into error because not only do they lack doctrine, but they lack _conviction_for the truths they do know. Most Christians are filled with _preferences _ instead of _convictions_ towards doctrinal truth. Preferences can be changed with no apparent loss, but convictions cannot be changed without great loss.
+We need sound doctrine and conviction for those truths. We need to what we believe and why we believe it. An ignorant Christian does not scare the devil. Many people compromise and fall into error because not only do they lack doctrine, but they lack _conviction_for the truths they do know. Most Christians are filled with _preferences_ instead of _convictions_ towards doctrinal truth. Preferences can be changed with no apparent loss, but convictions cannot be changed without great loss.
 
 1. CONVICTION: You SEE it as God's Word, BELIEVE it to be truth, and LIVE by it (and possibly die for it!). _UNNEGOTIABLE_
 2. PREFERENCE: You've HEARD about it, been TOLD or even TAUGHT, but don't believe in the absoluteness and authority of the doctrine. _NEGOTIABLE_ (Only your _opinion.)

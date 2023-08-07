@@ -30,7 +30,7 @@ Angels never were human, but were created as angels. There is no Scripture that 
 
 #### Powerful but Limited
 
-Angels are very powerful beings, but their power is limited. One angel killed 185,000 Assyrians in one night. (2 Kings 19:35) Another angel was sent by God to destroy Jerusalem, yet could not complete the destruction in I Chronicles 21:15. These passages show both the power and limitation of angels. They had the power to destroy entire cities, but when God told them to stop they had to stop. Angels cannot work independent of God. Even satan (a ‘fallen angel’ or the ‘devil’) needed permission from God to do anything to Job and his family.
+Angels are very powerful beings, but their power is limited. One angel killed 185,000 Assyrians in one night (2 Kings 19:35). Another angel was sent by God to destroy Jerusalem, yet could not complete the destruction in I Chronicles 21:15. These passages show both the power and limitation of angels. They had the power to destroy entire cities, but when God told them to stop they had to stop. Angels cannot work independent of God. Even satan (a "fallen angel" or the "devil") needed permission from God to do anything to Job and his family.
 
 Angels are not omnipresent, omnipotent, or omniscient. Angels will be judged by God’s people (I Cor. 6:3). Angels desire to look into the meaning of the Gospel (I Peter 1:12); this shows that their understanding is limited.
 
@@ -49,3 +49,4 @@ The seraphim are mentioned only in Isaiah 6:2, 6. The name seraphim portrays bur
 #### Cherubim
 
 The most frequently mentioned class of angels is the cherubim. Cherubim serve in the presence of God and guard the house of God. Cherubim were portrayed on the Ark of the Covenant and on the walls of Solomon’s Temple as standing on both sides of God beside the mercy seat.
+

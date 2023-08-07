@@ -10,14 +10,14 @@ Mafundisho tano makubwa:
 4. Utakaso (Yohana 17:17; I Wakorinto 1:30; I Thesalonika 4:3-4; 2 Wathesalonika 2:13)
 5. Ujo wa Pili (Mathayo 26:64; Marko 13:32; 14:62; Luka 21:27; Matendo 1:11)
 
-Tumetumia matamko “tano makubwa” kwa kufananisha na mafundisho makuu na yenye kuwa na msingi. Kwa ujumba, mafundisho makuu ni ungo kawaida na waaminifu wengi bila kutafakari dhehebu. Mafundisho mengi mengine imeweza kuwa kwa utaratibu haina ya chini ya moja ya hiyi matano tena.
+Tumetumia matamko "tano makubwa" kwa kufananisha na mafundisho makuu na yenye kuwa na msingi. Kwa ujumba, mafundisho makuu ni ungo kawaida na waaminifu wengi bila kutafakari dhehebu. Mafundisho mengi mengine imeweza kuwa kwa utaratibu haina ya chini ya moja ya hiyi matano tena.
 
 Wokovu nitamko yenye kupatikana yote dani. Tamko wokovu maana ufungulivu asalama, kutenzwa, ubora, yenye kundi kwa halizambele, na uponyaji.
 
 Wokovu katika agano jipya la kiyunani:
 
-1. Majina - Sotaia; Sotaion (4991,4992) Luka 1:69; 2:30; Matendo 4:12
-2. Verb - Sozo (4982) Mathayo 1:21; Yohana 10:9; Matendo 15:11.
+1. Majina - Sotaia; Sotaion Luka 1:69; 2:30; Matendo 4:12
+2. Verb - Sozo Mathayo 1:21; Yohana 10:9; Matendo 15:11.
 
 Tamko na hali ya wokovu imeangaliwa katika wakati ipitayo (warumi 8:24); Katika wakati huu (I Wakorinto 15:2), na katika wakati ujao (warumi 13:11) wakati wa matumizi katika maandiko.
 

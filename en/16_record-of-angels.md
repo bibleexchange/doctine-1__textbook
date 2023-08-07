@@ -4,9 +4,9 @@
 
 ### The Angel of the Lord
 
-There are four angels named or titled in the Bible. The first mention of angels in the Bible is Genesis 16:7. The ‘angel of the Lord’ told Hagar to return to Sarai.
+There are four angels named or titled in the Bible. The first mention of angels in the Bible is Genesis 16:7. The "angel of the Lord" told Hagar to return to Sarai.
 
-This is the first of many times ‘The Angel of the Lord’ delivered messages:
+This is the first of many times "The Angel of the Lord" delivered messages:
 
 1. Spoke to Moses out of a burning bush (Ex. 3:2)
 2. Spoke to Manoah and his wife about Samson (Judges 13:2)
@@ -28,3 +28,4 @@ The word "prince" in this verse means ruler, commander, chief, or leader. Jude 9
 ### Gabriel
 
 Gabriel is a messenger in the four times he is mentioned in the Bible (Daniel 8:16; 9:21; Luke 1:19, 26). Some have speculated that Gabriel is an archangel, but there is no verse of Scripture to confirm this.
+

@@ -10,7 +10,7 @@ Five Cardinal Doctrines:
 4. Sanctification (John 17:17; I Cor. 1:30; I Thess. 4:3,4; 2 Thess. 2:13)
 5. Second Coming (Matt. 26:64; Mark 13:32; 14:62; Luke 21:27; Acts 1:11)
 
-We use the term ‘cardinal doctrines’ to refer to preeminent and fundamental doctrines. Generally speaking, Cardinal Doctrines are a common bond to the majority of Believers regardless of Denomination. Most other doctrines can be logically sub-categorized under one of these five, as well.
+We use the term "cardinal doctrines" to refer to preeminent and fundamental doctrines. Generally speaking, Cardinal Doctrines are a common bond to the majority of Believers regardless of Denomination. Most other doctrines can be logically sub-categorized under one of these five, as well.
 
 Salvation is an all-inclusive word. The term Salvation expresses deliverance, safety, preservation, soundness, restoration, and healing.
 

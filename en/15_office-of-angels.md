@@ -4,7 +4,7 @@
 
 #### To God
 
-The main duty of angels is to worship and serve God. Angels worshipping and serving God are portrayed many times in the Bible and especially in the book of Revelation. Angels worship and carry out the commands of God (Hebrews 1:6; I Peter 3:22; Revelation 5:11; 14:10; <!--Following Not in SW--> Dan 7:10; 1Ki 22:19; II Ki 6:16-17; IIChr 32:7-8;Ps 68:17;103:20-21; He12:22; Re 5:11).
+The main duty of angels is to worship and serve God. Angels worshipping and serving God are portrayed many times in the Bible and especially in the book of Revelation. Angels worship and carry out the commands of God (Hebrews 1:6; I Peter 3:22; Revelation 5:11; 14:10; Dan 7:10; 1 Ki. 22:19; II Ki. 6:16-17; II Chr 32:7-8; Ps 68:17; 103:20-21; Heb. 12:22; Rev. 5:11).
 
 #### To Man
 
@@ -43,3 +43,4 @@ In the story of Lazarus and the rich man, we read that angels carried the spirit
 Although God’s are holy creatures, they are not to be worshipped. Satan tried to get Jesus to worship him, but Jesus flatly told him only God is to be worshipped. Angels are meant to worship God and in no case are they to be worshipped (Luke 4:8; Hebrews 1:6; Colossians 2:18; Romans 1:25).
 
 We are not to worship any created being, even angels. All worship is to be directed to the Creator. It is dangerous folly for many to put unhealthy emphasis on angels. Only three names are given in Scripture out of the innumerable number that makes up the Heavenly Host; this should be an indication to us not to give undue attention and focus to angels. Our focus should be on Christ and being led by the Holy Ghost.
+

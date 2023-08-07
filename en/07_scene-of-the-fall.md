@@ -22,3 +22,4 @@ Let us consider two other relevant questions:
 
 1. Did man’s failure reflect at all on God? No. God is infallible. God created and designed man, but He also gave man the freedom of choice. Man’s fall does not expose some flaw in God’s design, but emphasizes the wonderfulness of God’s design. God designed it so that man could choose God, but he also had the liberty to not choose God and His ways.
 2. Did Adam HAVE to sin? No. If Adam HAD to sin, there would still have existed no true ‘choice’ for Adam simply would have had ‘no choice’ but to sin. With every test from God comes also the grace to overcome! We can pass the test by the grace of God. There existed for Adam and still exists for us the potential of not falling (Jude 1:24).
+

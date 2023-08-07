@@ -4,10 +4,9 @@
 
 ### Malaika wa Bwana
 
-Kuna malaika wanne waliotajwa au wenye vyeo katika Biblia. Malaika wanatajwa mara ya kwanza katika Biblia ni Mwanzo 16:7. Malaika wa Bwana ΓÇÖ alimwambia Hajiri arudi kwa Sarai.
+Kuna malaika wanne waliotajwa au wenye vyeo katika Biblia. Malaika wanatajwa mara ya kwanza katika Biblia ni Mwanzo 16:7. "Malaika wa Bwana" alimwambia Hajiri arudi kwa Sarai.
 
-
-Hii ni mara ya kwanza kati ya mara nyingi ΓÇÿMalaika wa BwanaΓÇÖ aliwasilisha ujumbe:
+Hii ni mara ya kwanza kati ya mara nyingi "Malaika wa Bwana" aliwasilisha ujumbe:
 
 1. Alizungumza na Musa kutoka katika kijiti kilichowaka moto (Kut. 3:2)
 2. Alizungumza na Manoa na mke wake kuhusu Samsoni  (Waamuzi 13:2)
@@ -16,13 +15,13 @@ Hii ni mara ya kwanza kati ya mara nyingi ΓÇÿMalaika wa BwanaΓÇÖ aliwasili
 
 ### Lusifa
 
-Lusifa maana yake ni nyota ya mchana, inayong'aa, au yenye kung'aa. Katika uasi wake dhidi ya Mungu, Lusifa alianguka katika hukumu ya shetani kuwa mkuu wa malaika walioanguka na adui wa Mungu. Kuanguka kwa LuciferΓÇÖs kunaelezewa katika Isaya 14:12-14 na Ezekieli 28:12-15. Kabla ya anguko lake, Lusifa alikuwa malaika mkuu ambaye kwa kiburi alijaribu kujiinua juu ya malaika wengine kama MunguΓÇÖs sawa. Aliumbwa katika nafasi ya juu, lakini akaanguka mbali nayo (Yohana 8:44; 1Timotheo 3:6).
+Lusifa maana yake ni nyota ya mchana, inayong'aa, au yenye kung'aa. Katika uasi wake dhidi ya Mungu, Lusifa alianguka katika hukumu ya shetani kuwa mkuu wa malaika walioanguka na adui wa Mungu. Kuanguka kwa Lucifer kunaelezewa katika Isaya 14:12-14 na Ezekieli 28:12-15. Kabla ya anguko lake, Lusifa alikuwa malaika mkuu ambaye kwa kiburi alijaribu kujiinua juu ya malaika wengine kama Mungu sawa. Aliumbwa katika nafasi ya juu, lakini akaanguka mbali nayo (Yohana 8:44; 1Timotheo 3:6).
 
 Katika anguko lake, Lusifa alivuta theluthi moja ya malaika wa mbinguni pamoja naye. Katika vita kuu huko Mbinguni, shetani na wafuasi wake walitupwa kutoka mbinguni (Ufunuo 12:4).
 
 ### Mikaeli
 
-Mikaeli ndiye malaika pekee anayetajwa kuwa malaika mkuu. Wajibu wake mkuu unaonekana kuwa ulinzi wa kijeshi wa watu wa MunguΓÇÖs (Danieli 12:1).
+Mikaeli ndiye malaika pekee anayetajwa kuwa malaika mkuu. Wajibu wake mkuu unaonekana kuwa ulinzi wa kijeshi wa watu wa Mungu (Danieli 12:1).
 
 Neno "mkuu" katika mstari huu linamaanisha mtawala, kamanda, chifu, au kiongozi. Yuda 9 inaeleza pambano kati ya Mikaeli na shetani. Mikaeli anaonyeshwa kama malaika wa vita na vita (Ufunuo 12:7).
 

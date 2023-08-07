@@ -58,7 +58,7 @@ Each Person of the Trinity is involved in regeneration:
 
 #### Human reparation
 
-Human reparations involved in regeneration are matters of obedience to God’s commands: confession, repentance and faith. They do not purchase regeneration, but are the conditions under which God requires to work.
+Human reparations involved in regeneration are matters of obedience to God’s commands: confession, repentance, and faith. They do not purchase regeneration, but are the conditions under which God requires to work.
 
 ### The effects of regeneration
 
@@ -95,3 +95,4 @@ Two extremes should be avoided in setting a standard for righteous living:
 2. Making standard too high -young converts will stumble.
 
 Compare I John 3:9 and I John 2:1.
+

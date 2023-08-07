@@ -25,3 +25,4 @@ Below is an example of Systematic Theology that we will use in this study.
 9. **Pneumatology** — The Doctrine of the Holy Spirit (I Thessalonians 1:5; John 14:16; 16:13; Acts 1:8; 2:1-4; Romans 5:5; 8:16)
 10. **Ecclesiology** — The Doctrine of the Church (Matthew 16:18; Eph 1:22,23; Col 1:24; Hebrews 12:23; Revelation 1:20)
 11. **Eschatology** — The Doctrine of Last Things (Isaiah 2:2; Daniel 12:9; Micah 4:1; Matthew 24; Acts 2:17; 2 Timothy 3:1; 2 Peter 3:3)
+

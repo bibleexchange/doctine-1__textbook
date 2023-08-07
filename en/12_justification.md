@@ -1,4 +1,4 @@
-#Justification
+# Justification
 
 ## The nature of justification – divine acquittal
 
@@ -229,3 +229,4 @@ The Scripture speaks of a work of faith:
 5. Faith protected by works (James 2:22)
 
 That is, faith is an energetic principle; as well as, a receptive attitude. Faith is therefore a powerful motive to obedience and to every good work. Faith involves the will and is connected with all good choices and actions (Rom. 14:23). Faith includes the choice and pursuit of the truth (II Thess. 2:12). Faith implies subjection to the righteousness of God (Rom. 10:3).
+

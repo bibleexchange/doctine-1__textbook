@@ -21,3 +21,4 @@ Dogma is man's statement of the truth set forth in a creed; while, doctrine is t
 > The Pope is not simply the representative of Jesus Christ. On the contrary, he is Jesus Christ Himself, under the veil of the flesh, and who by means of a being common to humanity continues His ministry amongst men … Does the Pope speak? It is Jesus Christ Who is speaking. Does he teach? It is Jesus Christ Who teaches. Does he confer grace or pronounce an anathema? It is Jesus Christ Himself Who is pronouncing the anathema and conferring the grace.
 
 The _dogma_ of the Roman Catholic church is based on _false doctrine_ and therefore it is false. Doctrine could be understood as “simply what the Bible says” and dogma is man's conclusions drawn from the text of the Scripture. Dogma _can be_ true, but is not necessarily true.
+

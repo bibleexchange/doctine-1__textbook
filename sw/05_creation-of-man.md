@@ -2,15 +2,15 @@
 
 ## Uumbaji maalumu (Mwanzo 1:25)
 
-Kuumbwa kwa Mtu. Tamko _"Uumbaji maalumu"_ hurejea mafundisho ambayo viumbe hai vyote viliumbwa kutokana na spish na yakwamba sipish hizi zitazaliana kutokana na aina yake. Kanuni hii hukanusha mapendekezo ya kimageuzi yanayo sema kuwa sipishi moja ilitokana na sipishi nyingine ya iliokuwepo zamani. Kibiblia huweka, uumbaji maalumu kumaanisha kwamba kila kiumbe hai hujizalisha **kwa aina yake**Mfano rahisi zaidi wa kanuni hii ni pale unapopanda mbegu ya chungwa, ni wazi kabisa kwamba mchungwa utajiendeleza wenyewe na sio aina Fulani ya mumea(kama vile epo, tikiti, tango, nakadhalika)
+Kuumbwa kwa Mtu. Tamko _"Uumbaji maalumu"_ hurejea mafundisho ambayo viumbe hai vyote viliumbwa kutokana na spish na yakwamba sipish hizi zitazaliana kutokana na aina yake. Kanuni hii hukanusha mapendekezo ya kimageuzi yanayo sema kuwa sipishi moja ilitokana na sipishi nyingine ya iliokuwepo zamani. Kibiblia huweka, uumbaji maalumu kumaanisha kwamba kila kiumbe hai hujizalisha **kwa aina yake**. Mfano rahisi zaidi wa kanuni hii ni pale unapopanda mbegu ya chungwa, ni wazi kabisa kwamba mchungwa utajiendeleza wenyewe na sio aina Fulani ya mumea (kama vile epo, tikiti, tango, nakadhalika).
  
 ## Mfano wa Mungu
 
 Mwanzo 1:26 inasema kwamba aliumbwa kwa mfano wake Mungu. Ufananisho na mfano hii imeambatana na nini?
 
-Labda kuna rejea hapa inayoonyesha mfano wa kimwili kwenye maandiko ya fuatayo kama  Zaburi 17:15 hufundisha kwamba Mungu anaumbo la kuonekana na kwa hivyo mtu alichukuwa sura hiyo katika bustani.  Angalia tena katika Isaya 6:1 na Matendo 7:55-56.
+Labda kuna rejea hapa inayoonyesha mfano wa kimwili kwenye maandiko ya fuatayo kama Zaburi 17:15 hufundisha kwamba Mungu anaumbo la kuonekana na kwa hivyo mtu alichukuwa sura hiyo katika bustani. Angalia tena katika Isaya 6:1 na Matendo 7:55-56.
 
-Basi, afadhali  tufanye angalizo ili kukumbuka kwamba Mungu ana uwezo wa kuivaa hali ya mtu. Undani wa hali yake ni Roho (Yohana 4:24).
+Basi, afadhali  tufanye angalizo ili kukumbuka kwamba Mungu ana uwezo wa kuivaa hali ya mtu, **undani wa hali yake ni Roho** (Yohana 4:24).
 
 Inayo urejeo maalumu wa kimaadili na mfano wa kiakili. Katika vifungu vifuatavyo heelezea “mfano” wa Mungu kwa kuzingatia ujuzi na haki (Waefeso 4:23; Wakolosai 3:10; 2 Wakorinto 3:18).
 
@@ -38,6 +38,7 @@ Mpango bila mwenye kupanga? Inakuwaje kwamba hapakuwa na kitu lakini ghafla kuka
 2. MWEZI — Ikiwa utaikaribia duia, mawimbi yenye ukubwa zaidi yangetumeza.
 3. Hewa — Kiasi sahihi cha oksjeni kimewekwa katika hewa kiasi kwamba kiiongezwa au kupunguzwa basi hapangekuwa na maisha.
 4. NYOTA — Utaribu wa nyota zetu na na jua lake, na sayari mbalimbali, mlolongo wa nyota, ni muunganiko wa bilioni 100 za nyota. Kila moja na utaratibu wake wa sayari. Dunia hufikiriwa kutanuka bila mwisho.
+5. UDONGO — Yobo 12:8 "Sungunza na udongo, na itakufundishwa". Udondo imezunguka katika njia nne kwa mara moja ao zaidi yake.
 
 #### ULIMWENGU WA ASILI
 
@@ -69,7 +70,7 @@ Tutazame kwanza matendo ya baadhi ya mbinu ya maarifa kama bile bwana Darwin ali
 MAUNGANO YALIYOTOWEKA:
 
 1. _Hesperopithecus_— Harold Cocki— Mtu wa Nebroska— Huu ni mfano wa jino moja lililo gunduliwa ambalo mwishowe lilithibitishwa kuwa lilitokana na nguruwe.
-2. _Homo neanderthalensis_— Mtu wa Neanderthal— Katika nchi Germany— Lililo undwa kutoka **sehemu** ya fuvu la kichwa, taya, ubavu moja **kipande**. Wanasayansi wasingekubaliana kuhusu yale waliyo yapata kama yanatoka katika mwili uleule.
+2. _Homo neanderthalensis_— Mtu wa Neanderthal— Katika nchi Germany — Lililo undwa kutoka **sehemu** ya fuvu la kichwa, taya, ubavu moja **kipande**. Wanasayansi wasingekubaliana kuhusu yale waliyo yapata kama yanatoka katika mwili uleule.
 3. _Pithecanthropus erectus_— "Sokwe alitembea kiwima wima” aliyejulikana kama mtu wa Java-mfano mzima ulikuwa umeundwa tu kutoka kipande cha fuvu la kichwa, meno mawili, na taya moja. Wanasayansi 10 walisema vitu hivyo vilikuwa mifupa ya sokwe; Saba wengine walisema yalikuwa maungano yenye kutoweka "katika mnyororo wa maendeleo ya mageuzi!
 4. _Eoathropus dawsoni_— Mtu wa altdown — Kutoka kwenye kipande cha fuvu la kichwa, gego moja, meno mawili ya kurarua na mfupa wa pua. Kwa kutumia mchanganyiko wa kikemikali ilithibitika kuwa mfupa wa taya haukuwa wa fuvu hilo la kichwa. 
 5. _Homo erectus_— Mtu wa Heidelberg — Tena mchoro **mzima** wa kiumbe mchanganyiko mwenye viungo miamoja vinavyotembea kwa ujumla viliundwa kutoka kwenye chanzo cha **taya** moja lililopatikana mchanga wa Ujerumani. 
