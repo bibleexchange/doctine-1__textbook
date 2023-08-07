@@ -1,11 +1,10 @@
-﻿##Kuzaliwa Upya
+﻿## Kuzaliwa Upya
 
 ### Asili ya kuzaliwa upya
 
 Kuzaliwa upya ni tendo la Kimungu ambalo humpa mwamini anayetubu maisha mapya na ya juu zaidi katika muungano wakibinafsi na Kristo. Agano Jipya linaelezea kuzaliwa upya kama:
 
 #### Kuzaliwa
-
 
 Kuzaliwa upya ni Kuzaliwa (si ubatizo – siku hudhuria kanisa – si matengenezo). Mungu Baba ndiyeâ€œaliyemzaaâ€na mwamini niâ€œmzaliwa wa Mungu (1 Yohana 5:1), â€œaliyezaliwa na Rohoâ€ (Yohana 3:8), naâ€œalizaliwakutokajuuâ€ ( tafsirihalisiyaYohana 3:7). Maneno haya yana rejelea tendo la neema ya uumbaji ambayo humfanya mwamini kuwa motto wa Mungu.
 
@@ -24,7 +23,6 @@ Yeye aliyemuumba mwanadamu hapo mwanzo na kumpulizia puani pumzi ya uhai, anamwu
 #### Ufufuo
 
 Kama vile Mungu alivyohuisha udongo usio na uhai na kuufanya kuwa hai kwa ulimwengu, hivyo anahuisha nafsi iliyokufa katika dhambi na kuifanya hai kwa hali halisi ya ulimwengu wa kiroho. Tendo hili la ufufuo kutoka kwa kifo cha kiroho linaonyeshwa katika ubatizo wa maji. Wesley alisema, Kuzaliwaupyaniâ€œlilebadilikokubwaambaloMunguhufanyakazikatikanafsianapoiletakatikauzima; anapoifufuakutokakatikamautiyadhambihadikwenyeuzimawahaki.â€
-
 
 Maneno haya ni lahaja tu za wazo moja kuu la msingi la kuzaliwa upya, yaani, utoaji wa Kiungu wa maisha mapya kwa nafsi ya mwanadamu. Na mambo matatu ya hakika ya kisayansi ya kweli ya maisha ya asili ya na husu pia maisha ya kiroho, hujaghafla, huonekana kwa fumbo, na kukua hatua kwa hatua ( Rum. 6:4-5; Kol. 2:13; 3:1; Efe. 2:5-6 )
 
@@ -71,8 +69,6 @@ Malipo ya wanadamu yanayohusika katika kuzaliwa upya ni masuala ya utii kwa amri
 
 Nenoâ€œkuasiliâ€maana yake halisi niâ€œkutoa nafasiya wana.â€Kimafundisho, kuasili na kuzaliwa upya kunapaswa kutofautishwa. Kuasili ni neno la kisheria. Kuzaliwa upya ni mabadiliko ya ndani ya kiroho. Mtu mmoja mmoja lazima AZALIWE katika familia ya Mungu (huku ni kuzaliwa upya), na ASIWE AKIWA katikafamiliayaMungu.
 
-.
-
 * â€œWatotoâ€ (Kigiriki: tekna) inamaanaâ€œwaliozaliwaâ€inamaanisha kuzaliwa upya (Yohana 1:12-13; Rum. 8:15-16; 1Yohana 3:1).
 * â€œKufanywakuwawanaâ€ (Kigiriki: huiothesia) inamaanaâ€œkuwekwa kama mwanaâ€ (Gal. 4:5).
 * “Mwana” (Kigiriki: huios) humaanisha ukomavu ( Rum. 8:14, 19; Ebr. 2:10 ). Tunazaliwa kama watoto wachanga katika kuzaliwa upya. Kwasili ni kazi tofauti na kuzaliwa upya.
@@ -103,11 +99,4 @@ Mambo mawili yaliyo kithiri yanapaswa kuepukwa katika kuweka viwango vya maisha 
 watajikwaa.
 
 Linganisha 1 Yohana 3:9 na 1 Yohana 2:1.
-
-
-
-
-
-
-
 

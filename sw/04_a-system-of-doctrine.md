@@ -4,7 +4,7 @@ Kuna karibu idadi isiyo na kikomo ya njia za kuainisha mafundisho. Orodha iliyot
 
 ## Baadhi ya Ainisho za Kawaida za Mafundisho ya Biblia
 
-1. **Theolojia ya Ufafanuzi** — Uelezeaji,Yenye kuonyesha,kufasiri maana ya mandiko, kutoa ukweli nakuonyesha maana halisi ya maandiko matakatifu,na inahitaji ujuzi wa lugha za asili.
+1. **Theolojia ya Ufafanuzi** — Uelezeaji, Yenye kuonyesha, kufasiri maana ya mandiko, kutoa ukweli nakuonyesha maana halisi ya maandiko matakatifu, na inahitaji ujuzi wa lugha za asili.
 2. **Theolojia ya Kihistoria** — Inahusisha kujifunza historia ya kanisa na maendeleo ya ufasiri wa maandiko na mafundisho.
 3. **Theolojia ya Dogmatic** — Mafunzo ya misingi ya imani kama vile maagizo ya kanisa.
 4. **Theolojia ya Biblia** — Hutoa maendeleo ya “kweli kwa njia ya vitabu vya Biblia.

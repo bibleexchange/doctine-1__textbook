@@ -16,11 +16,11 @@ KWA MFANO: Katika Matendo 17:22-34 watu wa Athene walijenga madhabahu iliyoandik
 
 ## Ujuzi wa mafundisho unahitajika kwa kujenga mwenendo ya kikristo, na na kusaidia katika kutuelekeza katika haki (II Timotheo 3:16-17)
 
-UKamilifu, ni maendeleo timilifu. Kuna mchakato wa maendeleo katika maisha ya kiroho kama ilivyo katika maisha ya kimwili. Kuna hatua za ukamilifu. Mtoto mchanga ni mtimilifu? Jibu ni ndio,ijapo ni mtoto mchanga! Lakini kukuwa na kukomaa vinahitajika la sivyo tutasema kuna shida I Petro 2:2 amesema, "Kama vile watoto wachanga wanavyotamani maziwa, nanyi pia mnapaswa kuwa na hamu ya maziwa halisi ya kiroho, ili kwa nguvu yake mpate kukua na kukombolewa."
+UKamilifu, ni maendeleo timilifu. Kuna mchakato wa maendeleo katika maisha ya kiroho kama ilivyo katika maisha ya kimwili. Kuna hatua za ukamilifu. Mtoto mchanga ni mtimilifu? Jibu ni ndio, ijapo ni mtoto mchanga! Lakini kukuwa na kukomaa vinahitajika la sivyo tutasema kuna shida I Petro 2:2 amesema, "Kama vile watoto wachanga wanavyotamani maziwa, nanyi pia mnapaswa kuwa na hamu ya maziwa halisi ya kiroho, ili kwa nguvu yake mpate kukua na kukombolewa."
 
-Nimhimu kuishi katika haki kuliko kuyafahamu mafundisho, walakini **hatuta**ishi katika haki bila mafundisho sahihi ya kikristo,usahihi wa maoni ni wapili kwa usahihi wa kuishi bali usahihi wa maoni ni walazima katika kuishi kwa haki(Waglatia 2:17; Tito 1:16; I Petro 1:22, Waefeso 2:5, 8-10; Wafilip 2:12-13; Waebrania 12:14; I Petro 1:16).
+Nimhimu kuishi katika haki kuliko kuyafahamu mafundisho, walakini **hatuta**ishi katika haki bila mafundisho sahihi ya kikristo, usahihi wa maoni ni wapili kwa usahihi wa kuishi bali usahihi wa maoni ni walazima katika kuishi kwa haki(Waglatia 2:17; Tito 1:16; I Petro 1:22, Waefeso 2:5, 8-10; Wafilip 2:12-13; Waebrania 12:14; I Petro 1:16).
 
-Waweza kweli kumpenda Yesu bila ufahamu wa neno la Mungu? Ufahamu wa mafundisho unahitajika kwa ajili ya ukuaji wa mwenendo wa kikristo. Ilisemekana vizuri kwamba, "Mwenendo wa kikristo ni tuda linalokuwa tu katika mti wa mafundisho ya Biblia,mafundisho sahihi ni sawa na uti wa mgongo wa mkristo katika mwili wake.Uti wa mgogo hauwekwi kifuani,bali pasipo huo mtu ataota kibiongo au kuwa samaki laini wa kikristo,mahusiano ya mwisho na kristo yanahitaji kujikabidhi kwenye kweli.Tunahitaji uti wa mgogo ulioimara wa mafundisho ya Biblia.
+Waweza kweli kumpenda Yesu bila ufahamu wa neno la Mungu? Ufahamu wa mafundisho unahitajika kwa ajili ya ukuaji wa mwenendo wa kikristo. Ilisemekana vizuri kwamba, "Mwenendo wa kikristo ni tuda linalokuwa tu katika mti wa mafundisho ya Biblia, mafundisho sahihi ni sawa na uti wa mgongo wa mkristo katika mwili wake. Uti wa mgogo hauwekwi kifuani, bali pasipo huo mtu ataota kibiongo au kuwa samaki laini wa kikristo, mahusiano ya mwisho na kristo yanahitaji kujikabidhi kwenye kweli. Tunahitaji uti wa mgogo ulioimara wa mafundisho ya Biblia.
  
 Yesu ni mfano wetu uliotutangulia na tena alikuwa na mafundisho (Mathayo 7:28-29; Mark 1:22; Luka 4:32; Yohana 7:16).
 
@@ -28,7 +28,7 @@ Yesu ni mfano wetu uliotutangulia na tena alikuwa na mafundisho (Mathayo 7:28-29
 
 Kwa nini Mafundisho ya Biblia niya muhimu? Soma Waefeso 4:14.
 
-Tunahitaji mafundisho salama na uguso kwa ajili ya zile kweli,tunayahitaji kwa ajili ya kile tunachoamini na hiyo ndio sababu ya kuamini.Mkristo mjinga hamtishi shetani.watu wengi hukubaliana na kuanguka kwenye makosa,sio kwasababu wamepungukiwa tu mafundisho bali wamepungukiwa_ uguso_kwa ajili ya zile kweli wanazozijua.Wakristo wengi hujawa na _mapendeleo_ badala ya uguso unaoelekea kwenye ukweli wa mafundisho ya Biblia.Mapendeleo yanaweza kubadilishwa bila ya kupata hasara,lakini uguso hauwezi kubadilishwa bila kupata hasara kubwa. 
+Tunahitaji mafundisho salama na uguso kwa ajili ya zile kweli, tunayahitaji kwa ajili ya kile tunachoamini na hiyo ndio sababu ya kuamini. Mkristo mjinga hamtishi shetani. Watu wengi hukubaliana na kuanguka kwenye makosa, sio kwasababu wamepungukiwa tu mafundisho bali wamepungukiwa_ uguso_kwa ajili ya zile kweli wanazozijua. Wakristo wengi hujawa na _mapendeleo_ badala ya uguso unaoelekea kwenye ukweli wa mafundisho ya Biblia. Mapendeleo yanaweza kubadilishwa bila ya kupata hasara, lakini uguso hauwezi kubadilishwa bila kupata hasara kubwa. 
 
 1. UGUSO/HUKUMU: umeiona kama neno la Mungu, na kuamini kuwa kweli, na ishi katika kweli (na tena ikiwezekona ufe kwa ajali ya hiyo!).HAKUNA MJADALA.
 2. UPENDELEO: umeyasikia, ulielezwa au hata ulifundishwa, lakini hukuyaamini mamlaka ya mafundisho. _INAJADILIKA_.( ni maoni yako tu)
@@ -37,16 +37,17 @@ Imani za wazi zinazo kata hufanya miguso ya wazi inayokata.
 
 **UYAJUE MAFUNDISHO YA UWONGO** (I Timotheo 4:1).
 
-Kila siku,lifuate Neno. Tunahitaji kukabili kila tatizo kwa kujiuliza swali hili kwamba “ maandiko matakatifu husemaje?” (Warumi 4:3). Ikiwa ulimwengu wote utaungana dhidi ya neno la Mungu,hiyo ni dhahiri kwamba ulimwengu utakuwa umekosea,weka katika urahisi;jishikishe kwenye Neno la Mungu. Tunajuaje kile kilicho cha kweli kutoka katika kile ambacho ni uwongo?.Dumu katika Neno la Mungu (Yohana 8:31-32).
+Kila siku, lifuate Neno. Tunahitaji kukabili kila tatizo kwa kujiuliza swali hili kwamba “ maandiko matakatifu husemaje?” (Warumi 4:3). Ikiwa ulimwengu wote utaungana dhidi ya neno la Mungu, hiyo ni dhahiri kwamba ulimwengu utakuwa umekosea, weka katika urahisi;jishikishe kwenye Neno la Mungu. Tunajuaje kile kilicho cha kweli kutoka katika kile ambacho ni uwongo?.Dumu katika Neno la Mungu (Yohana 8:31-32).
 
-Kwasababu ya uhakika mbaya kwamba,sio mahubiri yote ni ya kweli kwa hiyo (Mathayo 16:12)kila mkristo anapswa kujihusisha na neno la Mungu. Kweli inahitajika sana (Wakolosai 2:8; Waebrania 13;9). Imetupasa kujifunza Neno la Mungu (II Timotheo 2:15).
+Kwasababu ya uhakika mbaya kwamba, sio mahubiri yote ni ya kweli kwa hiyo (Mathayo 16:12)kila mkristo anapswa kujihusisha na neno la Mungu. Kweli inahitajika sana (Wakolosai 2:8; Waebrania 13;9). Imetupasa kujifunza Neno la Mungu (II Timotheo 2:15).
 
-Imewapasa wanafunzi wa Biblia kuwa wenye saburi, busara na ujasiri. Kwa mafunzo yetu ya Neno la Mungu tuyalinganishe maandiko kwa maandiko,hivyo makosa hutokea kwasababu watu wengi huyavuta maandiko matakatifu inje ya mkitadha wake,na kukimbia nayo,fasiri maandiko kwa maandiko. 
+Imewapasa wanafunzi wa Biblia kuwa wenye saburi, busara na ujasiri. Kwa mafunzo yetu ya Neno la Mungu tuyalinganishe maandiko kwa maandiko, hivyo makosa hutokea kwasababu watu wengi huyavuta maandiko matakatifu inje ya mkitadha wake, na kukimbia nayo, fasiri maandiko kwa maandiko. 
 
-Kwa mfano: kuzaliwa upya maana yake nini katika injili ya Yohana 3:3? Je Yesu anamaanisha kuingia tena ndani ya tumbo la mama?hapana.sio kwasababu ya utaratibu au mahojiano bali Yesu anaelezea wazi jambo hili katika mstr 6-8 kuzaliwa kwa maji na kwa Roho Angalia pia katika Johana 1:13, Yakobo 1:18, I Petro 1:23, na Waefeso 4:26.
+Kwa mfano: kuzaliwa upya maana yake nini katika injili ya Yohana 3:3? Je Yesu anamaanisha kuingia tena ndani ya tumbo la mama? Hapana. Sio kwasababu ya utaratibu au mahojiano bali Yesu anaelezea wazi jambo hili katika mstr. 6-8 kuzaliwa kwa maji na kwa Roho Angalia pia katika Johana 1:13, Yakobo 1:18, I Petro 1:23, na Waefeso 4:26.
 
 Katika njia yetu ya kujifunza na kutafuta ukweli imetupasa kujikumbusha wenyewe kuwa na hekima  katika yote yaliyo mema na wepesi kuhusu tambua mabaya (Warumi 6:19). Hatutaki kuwa na ufahamu tele ya mabaya, bali tunahitaji kuelewa vyakutosha kuhusu wema.
 
-## Ufahamu ya mafundisho unatokana na  utii wa mapenzi ya Mungu (Yohana 7:17)
+## Ufahamu ya mafundisho unatokana na utii wa mapenzi ya Mungu (Yohana 7:17)
 
-Imetupasa kulionja Neno la Mungu. Kumpima Mungu ili kuona kama hatakuwa mwaminifu,Mfalme Daudi alisema," (Zaburi 34:8). Maadamu tunatembea katika mapenzi ya Bwana, tutapokea na kushuhudia ukweli na ukweli wa maneno ambayo Bwana YesU aliyasema. Mungu hatuaamuru kuamini kitabu kisicho wazi, bali hufungua kurasa za maandiko kwa ajili ya ufahamu wetu na kutualika,kwa njia ya uzoefu huu,ujuzi wa kina wa maandiko huja,ndipo basi yote tuliyonayo ni _kusikia -na kesema_. 
+Imetupasa kulionja Neno la Mungu. Kumpima Mungu ili kuona kama hatakuwa mwaminifu, Mfalme Daudi alisema," (Zaburi 34:8). Maadamu tunatembea katika mapenzi ya Bwana, tutapokea na kushuhudia ukweli na ukweli wa maneno ambayo Bwana YesU aliyasema. Mungu hatuaamuru kuamini kitabu kisicho wazi, bali hufungua kurasa za maandiko kwa ajili ya ufahamu wetu na kutualika, kwa njia ya uzoefu huu, ujuzi wa kina wa maandiko huja, ndipo basi yote tuliyonayo ni _kusikia -na kesema_. 
+

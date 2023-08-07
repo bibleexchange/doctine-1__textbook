@@ -1,6 +1,6 @@
 <div class="title-page">
   <div class="book-meta">
-    <p> Kitabu cha Mwaka wa kwanza</p>
+    <p>Kitabu cha Mwaka wa kwanza</p>
     <p>Kitabu</p>
   </div>
 
